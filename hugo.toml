@@ -1,0 +1,50 @@
+baseURL = "https://dijitaltamga.github.io/haber.merkezi/"
+languageCode = "tr"
+title = "Dijital Tamga | Haber Merkezi"
+theme = "PaperMod"
+
+[params]
+env = "production"
+description = "Türk Milliyetçiliği, Savunma Sanayii ve Güvenlik Haberleri"
+author = "Dijital Tamga"
+defaultTheme = "auto"
+ShowReadingTime = true
+ShowShareButtons = true
+ShowPostNavLinks = true
+ShowBreadCrumbs = true
+ShowCodeCopyButtons = false
+ShowWordCount = true
+UseHugoToc = true
+disableSpecial1stPost = false
+disableScrollToTop = false
+comments = false
+hidemeta = false
+hideSummary = false
+showtoc = false
+tocopen = false
+
+[params.homeInfoParams]
+Title = "Dijital Tamga'ya Hoş Geldiniz \U0001F41F\U0001F985"
+Content = "Türkiye'nin milli savunma, güvenlik ve jeopolitik nabzını tutan, Türkçü ve tavizsiz haber merkezi."
+
+[[params.socialIcons]]
+name = "x"
+url = "https://x.com/DijitalTamga"
+
+[[params.socialIcons]]
+name = "telegram"
+url = "https://t.me/dijitaltamga"
+
+[menu]
+[[menu.main]]
+name = "Haber Arşivi"
+url = "posts/"
+weight = 10
+
+[[menu.main]]
+name = "Arama"
+url = "search/"
+weight = 20
+
+[outputs]
+home = ["HTML", "RSS", "JSON"]
