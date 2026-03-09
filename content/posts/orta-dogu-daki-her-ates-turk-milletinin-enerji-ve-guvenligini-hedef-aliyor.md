@@ -1,0 +1,13 @@
+---
+title: "Orta Doğu'daki Her Ateş: Türk Milletinin Enerji ve Güvenliğini Hedef Alıyor!"
+date: 2026-03-09T12:10:50+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/03/09/924/0/5000/2500/644/322/60/0/22eea64_ftp-1-edwryjt20wlt-2026-03-09t063032z-998397587-rc2s0ka4goll-rtrmadp-3-iran-crisis-gulf-bahrain.JPG"
+---
+
+1. Orta Doğu coğrafyası, bir kez daha kendi iç çekişmelerinin ve derin anlaşmazlıklarının yarattığı bir yangın yerine döndü. İran'ın, yeni atanan dini liderin ilk askeri hamlesi olarak Bahreyn, Suudi Arabistan ve Katar gibi körfez ülkelerini füze ve insansız hava araçlarıyla hedef alması, İsrail'in Beyrut'u bombalamasıyla karşılık buldu. Bu tablo, bölgenin kronik istikrarsızlığını bir kez daha gözler önüne sererken, coğrafyamızın çeperinde yaşanan bu tehlikeli gelişmelerin Türk milletinin geleceği üzerindeki potansiyel etkileri endişe verici boyutlara ulaşıyor. Kendi iktidar kavgaları ve hegemonya hırsları uğruna tüm bölgeyi ateşe atan bu güçlerin eylemleri, sadece kendi sınırları içinde kalmıyor, dalga dalga tüm coğrafyayı etkiliyor.
+
+2. Bu gerilimin ilk ve en somut yansıması ekonomide görülüyor. Avrupa gaz fiyatlarının %30 artması ve İran Devrim Muhafızları'nın petrol fiyatlarının varil başına 200 doları aşabileceği tehdidi, Türk milletinin her bir ferdinin cebini doğrudan ilgilendiriyor. Enerjide dışa bağımlı olan ülkemiz için bu, sanayiden tarıma, ulaşımdan ısınmaya kadar her alanda maliyet artışı ve refah kaybı demektir. Bizimle alakası olmayan, ideolojik veya mezhepsel temelli çatışmaların faturasını Türk milleti ödemek zorunda kalmamalıdır. Bu kaos, sadece ekonomik değil, aynı zamanda stratejik bir tehdit de oluşturmaktadır. Sınırlarımıza yakın bu denli büyük bir istikrarsızlık, bölgesel güvenlik dengelerini alt üst etmekte, potansiyel göç dalgalarından terör örgütlerinin güçlenmesine kadar pek çok riski beraberinde getirmektedir.
+
+3. Türk milletinin böylesi bir "başka milletlerin kavgası" içinde kaybolmaması ve bu yangından zarar görmemesi için tek yol, kendi bağımsız gücüne ve stratejik aklına güvenmektir. Orta Doğu bataklığının derinliklerine sürüklenme lüksümüz yoktur. Türkiye, kendi milli çıkarlarını merkeze alan, rasyonel ve kararlı bir dış politika izlemeli, kendi potansiyelini ve Türk Devletleri arasındaki iş birliğini en üst düzeye çıkarmalıdır. Bizim önceliğimiz, kendi sınırlarımızı ve coğrafyamızı bu yangından korumak, milletimizin refahını ve güvenliğini sağlamaktır. Başkalarının çıkar çatışmalarına araç olmak yerine, kendi kaderimizi kendi ellerimizle çizmeli, büyük Türk milletinin bu coğrafyadaki sarsılmaz varlığını ve liderliğini tescil etmeliyiz.
