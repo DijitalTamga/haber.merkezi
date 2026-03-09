@@ -1,0 +1,13 @@
+---
+title: "Güney Afrika'dan Yükselen Ses: Var Olma Mücadelesi Nasıl 'Irkçılık' Olur?"
+date: 2026-03-09T09:14:47+03:00
+draft: false
+cover:
+    image: "https://i.guim.co.uk/img/media/be00c7e2113381d2d62eb43b4b1286a38bf5ee91/476_0_4406_3525/master/4406.jpg?width=140&quality=85&auto=format&fit=max&s=60da9a372d1309f4c668f74747b15741"
+---
+
+Güney Afrika Devlet Başkanı Cyril Ramaphosa'nın, ABD'nin beyaz Afrikanerlere sığınma hakkı tanıma politikasını "ırkçı" olarak nitelendirmesi ve ABD Başkanı Trump'ın "beyaz soykırımı" iddialarını "bilgisizce" bulduğunu belirtmesi, uluslararası arenada yeni bir tartışma başlattı. Ramaphosa'nın açıklamaları, Afrikanerlerin kendi topraklarında yaşadığı iddia edilen sorunlar ve varoluş mücadelesi üzerine odaklanmak yerine, konuyu sadece "ırkçılık" bağlamına indirgeme çabası olarak değerlendirilebilir. Ancak bu açıklama, her milletin kendi varlığını, kültürünü ve yaşam hakkını savunma mücadelesini yeniden düşündürmelidir.
+
+Bir etnik grubun, kendi topraklarında güvenlik endişesi taşıması ve başka bir yerde sığınma arayışına girmesi nasıl "ırkçılık" olarak damgalanabilir? Evrensel insan hakları prensipleri, bireylerin ve toplulukların can güvenliğini, kültürel devamlılığını ve mülkiyetini güvence altına almayı hedefler. Güney Afrika'daki Afrikanerlerin yaşadığı iddia edilen toprak müsadere vakaları veya artan suç oranları gibi sorunlar, bir milletin kendi varlığını sürdürme kaygılarının rasyonel temellerini oluşturabilir. Bu durumda, bir devleti veya lideri, mağdur olduğunu düşündüğü bir etnik gruba sahip çıktığı için "ırkçı" ilan etmek, sorunun derinliğini ve insani boyutunu göz ardı etmek demektir. Milliyetçilik, kendi milletinin varlığını ve refahını koruma çabasıdır; başka milletlere düşmanlık değil.
+
+Türkçü bir bakış açısıyla, her etnik grubun kendi kimliğini, toprağını ve yaşam biçimini koruma çabası kutsaldır. Kendi milletinin, kendi soydaşının uğradığı haksızlıkları veya karşılaştığı tehditleri dile getirmek, onları koruma gayesi gütmek asla "ırkçılık" değil, milli bir görev ve insanlık vazifesidir. Afrikanerlerin durumu, dünyada çeşitli nedenlerle benzer baskılara maruz kalan, varoluş mücadelesi veren tüm etnik toplulukların ortak çığlığıdır. Dijital Tamga olarak, hangi coğrafyada olursa olsun, kendi varlığını koruma mücadelesi veren her milletin haklı taleplerinin görmezden gelinmemesi gerektiğini vurguluyor, bu tür damgalamaların hakikat perdesini örttüğüne inanıyoruz. Milletlerin kendi geleceklerini tayin etme ve güven içinde yaşama hakkı, her türlü siyasi ajandanın üzerindedir ve bu temel haklara saygı duymak, evrensel bir sorumluluktur.
