@@ -1,0 +1,13 @@
+---
+title: "Küresel Fırtınada Türk Milleti: Stratejik Bakış ve Öz Güç Vurgusu"
+date: 2026-03-10T12:06:34+03:00
+draft: false
+cover:
+    image: "https://media.cumhuriyet.com.tr/Archive/0c1b3c76-30c8-41af-bb70-f0d443df28ff.png"
+---
+
+1. Dünya sahnesi, eşi benzeri görülmemiş bir türbülans dönemine girmiş bulunuyor. Küresel finans piyasaları, jeopolitik fay hatlarının tetiklediği sarsıntılar, teknolojik devrimin getirdiği belirsizlikler ve kredi piyasalarındaki artan risk sinyalleriyle tam bir fırtınanın ortasında kaldı. Özellikle Batı Asya'daki çatışmaların Hürmüz Boğazı gibi kritik enerji geçişlerini tehdit etmesi, yalnızca petrol fiyatlarını değil, tüm dünya ekonomisini ve dolayısıyla Türk milletinin ekonomik geleceğini de doğrudan etkileme potansiyeli taşıyor. Bu süreç, uzak topraklarda yaşanan olaylar olmaktan çok, coğrafyamızın ve milli menfaatlerimizin merkezinde yer alan gelişmeler olarak ele alınmalıdır.
+
+2. Bu üçlü tehdit silsilesi, Türk milletinin geleceğe yönelik stratejik planlamasını her zamankinden daha kritik hale getirmektedir. Enerji arz güvenliği, Hürmüz gibi dar boğazlardaki riskler karşısında milli bir öncelik olmalıdır. Alternatif güzergahlar, çeşitlendirilmiş kaynaklar ve stratejik rezervler, enerji bağımsızlığımızın temel taşlarıdır. Diğer yandan, yapay zeka devrimi, iş modellerini kökten değiştirecek bir güç olarak belirmiştir. Bu durumu bir tehditten ziyade, milli bilim ve teknoloji hamleleriyle bir fırsata çevirmek elzemdir. Türk gençliğinin bu alandaki yeteneklerini keşfetmeli, ulusal kalkınma projeleriyle desteklemeli ve yapay zekayı Türk milletinin refahı için bir araç haline getirmeliyiz. Son olarak, küresel kredi piyasalarındaki riskler, milli ekonomimizin sağlam temeller üzerinde yükselmesinin önemini bir kez daha ortaya koymaktadır. Üretime, ihracata ve yerli sanayiye dayalı, dışa bağımlılığı azaltan bir ekonomik model, bu tür şoklara karşı en büyük kalkanımız olacaktır.
+
+3. Böylesi çalkantılı dönemlerde, Türk milleti olarak birliğimizi, beraberliğimizi ve ortak akılımızı en üst düzeyde kullanmalıyız. Geleceğe dair stratejik öngörüler geliştirmeli, rasyonel kararlar almalı ve milli menfaatlerimizi her şeyin üzerinde tutmalıyız. Kendi öz kaynaklarımıza, kendi insan gücümüze ve bilimsel birikimimize güvenerek bu küresel fırtınayı en az hasarla atlatmak ve hatta güçlenerek çıkmak mümkündür. Dijital Tamga olarak, Türk milletinin bu zorlu süreçte aydınlanması ve doğru adımlar atması için gerekli bilgi ve analizi sunmaya devam edeceğiz. Unutulmamalıdır ki, en büyük güç, bir milletin kendi kaderini tayin etme iradesi ve bu uğurda gösterdiği birlik ruhudur.
