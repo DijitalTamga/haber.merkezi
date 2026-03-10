@@ -1,0 +1,13 @@
+---
+title: "Siyasetin Merkezi Neresidir: Ankara mı, Türk'ün Vatanı mı?"
+date: 2026-03-09T23:00:10+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+AKP Genel Başkanı ve Cumhurbaşkanı Tayyip Erdoğan’ın muhalefete yönelik "Ankara merkezli siyaset" çağrısı, siyasetin coğrafi ve idari merkezine dair önemli bir tartışmayı yeniden gündeme taşıdı. Bir Türkçü için "Ankara merkezli siyaset", elbette devletimizin başkenti olan Ankara'dan Türk milletinin yüksek menfaatleri doğrultusunda politikalar üretilmesi ve uygulanması anlamına gelmelidir. Ankara, Türk devlet geleneğinin ve egemenliğinin sembolü olarak, milletin birliğini ve geleceğini güvence altına alan stratejilerin kalbi olmalıdır. Ancak bu çağrı, günümüz Türkiye'sinde siyasetin gerçek merkezinin neresi olduğu sorusunu da beraberinde getirmektedir.
+
+Ne var ki, bugün "Ankara merkezli siyaset" söylemi, sıklıkla dar bir siyasi zümrenin veya mevcut iktidarın kendi ideolojik önceliklerini merkeze aldığı bir yaklaşım olarak algılanmaktadır. Türk milletinin vatanın dört bir yanında yükselen sesleri, ekonomik sıkıntıları, kimlik bunalımları ve demografik tehditleri, sadece Ankara'daki bürokratik koridorlardan ibaret bir siyaset anlayışıyla yeterince karşılanamaz. Gerçek bir milli siyaset, Türk'ün yaşadığı her coğrafyayı, her kültürel zenginliği, her tarihi mirası kapsamak zorundadır. Siyasetin coğrafi merkezi Ankara olabilir, ancak fikri ve ruhi merkezi, Türk vatanının bir bütün olarak refahı, Türk kimliğinin korunması ve milletin geleceği için verilen kutlu mücadeledir. Başkent, milletin iradesinin bir yansıması ve hizmetkarı olmaktan öte, kendi başına bir siyasi kutup haline gelmemelidir.
+
+Türkçülük perspektifinden bakıldığında, siyasetin gerçek merkezi, ne Ankara’daki dar bir çevre ne de belirli bir siyasi partinin ideolojisidir. Siyasetin yegâne merkezi, geçmişinden geleceğine uzanan büyük Türk milletinin ta kendisidir. Vatanın dört bir köşesinde yaşayan, aynı kandan, aynı ruhtan beslenen Türk evlatlarının her birinin sesi, siyasetin temelini oluşturmalıdır. Ankara, bu geniş coğrafyanın ve köklü milletin beklentilerini, ihtiyaçlarını ve milli hedeflerini hayata geçiren, stratejilerini bu doğrultuda şekillendiren bir icra makamı olmalıdır. Eğer siyaset, sadece başkentteki belli odaklar tarafından belirlenmeye devam ederse, milletin genel refahı ve milli birliğimiz tehdit altında kalacaktır. Türk'ün kutlu devleti, sadece başkentin duvarları arasında değil, tüm Türk yurtlarında yeşeren milli şuurla yücelecektir. Siyasetin merkezine Türk milletini koyan bir anlayışla, Türk'ün geleceği sağlam temeller üzerine inşa edilecektir.
