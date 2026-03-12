@@ -1,0 +1,13 @@
+---
+title: "İstiklal Marşı: Türk'ün Ebedi Hürriyet Yemini, Kanla Yazılmış Andı"
+date: 2026-03-12T21:06:08+03:00
+draft: false
+cover:
+    image: "https://im.haberturk.com/l/2026/03/11/ver1773256439/3868967/jpg/1280x1280"
+---
+
+12 Mart, takvimlerde sıradan bir tarih olmaktan öte, Türk milletinin kendi kaderini tayin etme iradesinin, boyunduruk altına girmeme yeminini tüm cihana ilan ettiği kutlu bir dönüm noktasıdır. Tam 105 yıl önce, Anadolu coğrafyası işgal güçlerinin çizmeleri altında inim inim inlerken, yok oluşun eşiğindeki Türk ulusunun yeniden diriliş mücadelesine rehberlik edecek ölümsüz bir metin, Türkiye Büyük Millet Meclisi'nin onayıyla milli marşımız olarak kabul edildi. Mehmet Akif Ersoy'un kaleminden çıkan bu eser, sadece sözcüklerden ibaret değil, her bir dizesiyle Türk'ün bağımsızlık aşkını, vatanına olan sarsılmaz bağlılığını ve hürriyet uğruna vereceği son nefese kadar sürecek direnişini haykıran eşsiz bir destandır. O gün, Türk'ün sesi tüm Anadolu'dan yankılanmış, esarete "hayır" diyen kutlu irade bir kez daha tescillenmiştir.
+
+İstiklal Marşı, basit bir şiir veya coşkulu bir melodi değildir; o, Türk'ün binlerce yıllık devlet geleneğinin, kutlu mücadelesinin ve hür yaşama azminin sesidir. Her bir kelimesinde, "korkma" nidasıyla başlayan o sarsılmaz cesaret, "hilal" ile sembolleşen şanlı bayrağımızın gölgesinde özgürlük ve bağımsızlık ideali yatar. Bu marş, Türk gençliğine atalarının hangi zorluklar altında var olduklarını, hangi bedelleri ödeyerek bu vatanı kendilerine emanet ettiklerini hatırlatır. O, sadece geçmişi anlatmakla kalmaz, aynı zamanda Türk ulusunun geleceğine yön veren, kendi öz varlığını koruma ve yükseltme ülküsünü diri tutan bir manifestodur. Türk'ün karakterinde var olan boyun eğmez ruhu, "hak" ve "hürriyet" aşkını en güçlü şekilde ifade eder.
+
+Bugün, İstiklal Marşı'nın kabulünün 105. yıl dönümünde, onun taşıdığı derin anlamı bir kez daha idrak etme ve ruhumuza kazıma zamanıdır. Bu marş, yalnızca törenlerde okunan bir metin değil, her Türk bireyinin yüreğinde yaşattığı, sürekli hatırlanması ve yeni nesillere aktarılması gereken bir milli şuur meşalesidir. Vatanımıza, milletimize ve şanlı tarihimize yönelen her türlü tehdit karşısında, İstiklal Marşı'nın ruhu bize yol göstermeli, birliğimizi pekiştirmeli ve "ben ezelden beridir hür yaşadım, hür yaşarım" diyen o sarsılmaz Türk ruhunu daima canlı tutmalıdır. Geleceğin Türk'ü, geçmişinden aldığı bu kutsal emanetle, daha güçlü, daha müreffeh ve daha kutlu bir Türkiye inşa etme sorumluluğunu omuzlarında taşımaya devam edecektir. And olsun ki, Türk'ün bayrağı sonsuza dek dalgalanacak, İstiklal Marşı'nın her hecesi Türk'ün yüreğinde yankılanacaktır.
