@@ -1,0 +1,13 @@
+---
+title: "Batı'nın Tereddüdü, Türk'ün Uyanıklığı: Hürmüz Krizinde Kendi Yolumuzu Çizmek"
+date: 2026-03-16T21:03:28+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Washington'ın İran'a yönelik artan baskısı, küresel enerji taşımacılığının can damarı Hürmüz Boğazı'nı bir kez daha uluslararası gerilimin merkezine taşıdı. Ancak bu kritik eşikte, ABD'nin Avrupalı müttefiklerinden beklediği destek tereddütle karşılanıyor. Avrupalı liderler, bir yandan bölgedeki istikrarsızlığın maliyetinin farkındayken, diğer yandan Trump yönetiminin dayattığı çözümlere angaje olma konusunda isteksizlik gösteriyor. Bu ikircikli durum, sadece diplomatik bir açmaz değil, aynı zamanda büyük güçlerin kendi çıkarları doğrultusunda nasıl bir yol haritası çizecekleri konusunda yaşadıkları derin anlaşmazlıkları da gözler önüne seriyor. Ortak bir duruş sergileyemeyen Batı, hem kendi içinde çelişkilerle boğuşuyor hem de bölgesel aktörleri daha fazla riskle karşı karşıya bırakıyor.
+
+Bu Avrupalı tereddüt ve uzlaşmazlık, sadece diplomatik bir dipnot olmaktan çok öte, bölgemiz ve doğrudan Türk Milleti için ciddi sonuçlar doğurmaktadır. Hürmüz Boğazı'ndaki potansiyel bir çatışma veya uzun süreli bir istikrarsızlık, küresel ticaret yollarını aksatacak, enerji krizlerini tetikleyecek ve Türkiye'nin sınırlarına kadar uzanabilecek devasa güvenlik riskleri oluşturacaktır. Batılı güçler kendi maliyetlerini ve faydalarını titizlikle tartarken, Türk devleti bu karmaşık denklemde kendi stratejik özerkliğini ve milli menfaatlerini merkeze alan net bir vizyonla hareket etmelidir. Uzun sınırlarımız, bölgeyle olan derin ekonomik ve kültürel bağlarımız, bizlere bu denli yüksek risk taşıyan bir oyunda pasif kalma lüksü tanımamaktadır. Bölgesel istikrar, yalnızca başkalarının inisiyatifine bırakılamayacak kadar hayati bir meseledir.
+
+Tarihi müttefiklerin dahi ortak bir zemin bulmakta zorlandığı bir çağda, Türk Milleti'nin yolu, sağlam bir bağımsızlık ve stratejik öngörü ile çizilmelidir. Başkalarının güç oyunlarına alet olmak veya dış baskılarla taraf seçmek yerine, Türk devleti bölgesel gerilimi düşürmeyi önceliklendirirken, kendi toprak bütünlüğünü, ekonomik dayanıklılığını ve jeopolitik etkisini titizlikle korumalıdır. Gücümüz, kendi çözümlerimizi üretebilme, yakın çevremizde istikrar sağlayıcı bir aktör olabilme ve başkalarının sorunlarının kendi milletimiz için aşılmaz yüklere dönüşmesini engelleme yeteneğimizdedir. Hürmüz krizi, Türk Milleti'nin kendi egemenliğini ve bölgesel gücünü bir kez daha dünyaya göstermesi için bir uyanış çağrısıdır. Unutulmamalıdır ki gerçek güç, uzak güçlerin gelgitlerinden bağımsız olarak, öz yeterlilikten ve milli kaderin yılmaz takibinden doğar.
