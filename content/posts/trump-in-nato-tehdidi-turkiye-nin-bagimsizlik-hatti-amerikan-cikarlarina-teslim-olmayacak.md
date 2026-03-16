@@ -1,0 +1,13 @@
+---
+title: "Trump'ın NATO Tehdidi: Türkiye'nin Bağımsızlık Hattı Amerikan Çıkarlarına Teslim Olmayacak"
+date: 2026-03-16T02:00:15+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+ABD Başkanı Donald Trump'ın NATO müttefiklerine yönelik "İran konusunda yardım etmezseniz çok kötü bir gelecekle karşılaşırsınız" uyarısı, ittifakın geleceği ve özellikle Türkiye'nin dış politika duruşu açısından kritik bir eşiği işaret etmektedir. Bu açıklama, Atlantik ötesinden gelen, müttefik devletlerin egemenlik alanlarına doğrudan müdahale niteliği taşıyan ve açıkça bir bağlılık talep eden bir baskı mekanizması olarak okunmalıdır. ABD'nin kendi ulusal çıkarları doğrultusunda şekillendirdiği politikalarına, müttefiklerini kayıtsız şartsız tabi kılma çabası, çok kutuplu hale gelen dünya düzeninde giderek daha fazla sorgulanmaktadır. Ayrıca, Çin ile ilgili zirve erteleme sinyali, Washington'ın küresel stratejisinin temelinde bu tür baskıların yattığını bir kez daha gözler önüne sermiştir.
+
+Bu tür bir dayatma karşısında, NATO üyelerinin kendi milli çıkarlarını göz ardı ederek hareket etmesi beklenemez. Özellikle Türkiye gibi köklü bir devlet geleneğine sahip, kendine has jeopolitik konumu ve bölgesel dinamikleri olan bir ülkenin, başkalarının savaş stratejilerine piyon olması, ulusal onuruyla bağdaşmaz. İran, Türkiye'nin köklü tarihi bağları olan bir komşusudur ve bölgedeki herhangi bir istikrarsızlık doğrudan Türkiye'nin güvenliğini ve refahını etkileyecektir. NATO, üyelerinin ortak savunma ihtiyaçlarını karşılamak üzere kurulmuş bir ittifaktır; bir tek ülkenin, ittifak dışındaki tek taraflı müdahalelerine destek aracı değildir. Türkiye'nin bugüne kadar olduğu gibi, gelecekte de kendi milli menfaatleri doğrultusunda, rasyonel ve stratejik adımlar atması kaçınılmaz bir zorunluluktur.
+
+Türkiye'nin dış politikası, ne ABD'nin ne de herhangi bir başka gücün diktelerine göre belirlenmez; Türk milletinin tarihi tecrübelerinden süzülmüş, egemenlik ve bağımsızlık ilkeleri üzerine inşa edilmiştir. Küresel güç mücadelesinin kızıştığı bu dönemde, Türkiye'nin kendi yolunu çizmesi, milli savunma sanayisini güçlendirmesi, diplomatik ilişkilerini çeşitlendirmesi ve bölgesel aktörlerle işbirliğini artırması hayati öneme sahiptir. Türk devletinin ve milletinin güvenliği ile bekası, başkalarının tehditlerine boyun eğmekle değil, kendi stratejik derinliğini ve bağımsız iradesini ortaya koymakla sağlanacaktır. Tarih, bize kendi kaderini kendi tayin eden milletlerin her zaman ayakta kaldığını göstermiştir. Türkiye, kendi milli varlığını merkeze alarak, bağımsız ve güçlü bir dış politika izlemeye devam edecektir.
