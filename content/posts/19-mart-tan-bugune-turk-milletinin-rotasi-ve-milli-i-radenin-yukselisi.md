@@ -1,0 +1,13 @@
+---
+title: "19 Mart'tan Bugüne: Türk Milletinin Rotası ve Milli İradenin Yükselişi"
+date: 2026-03-18T23:02:39+03:00
+draft: false
+cover:
+    image: "https://www.youtube.com/embed/qWeQsJq3Wa8"
+---
+
+1. Bir yıl önce, Türk milletinin kader çizgisinde önemli bir dönemeç olarak beliren 19 Mart süreci, geride bıraktığı birikim ve sorgulamalarla bugün de gündemimizdeki yerini koruyor. O günler, Türk devletinin ve milletinin karşı karşıya olduğu iç ve dış sınamaların ne denli derin olduğunu bir kez daha gözler önüne sermişti. Onur Alp Yılmaz'ın Medyascope'a verdiği söyleşi, bu kritik eşiğin yıl dönümünde, yaşanan değişimleri ve geleceğe dair beklentileri milli bir hassasiyetle değerlendirme fırsatı sunuyor. Bu süreç, sadece bir takvim yılının geçişi değil, aynı zamanda Türk milletinin kendi özüne dönme, güçlenme ve bağımsızlık ruhunu yeniden alevlendirme ihtiyacının belirginleştiği bir muhasebe dönemidir.
+
+2. Geride kalan bir yıl boyunca Türkiye'nin jeopolitik konumu, ekonomik dinamikleri ve toplumsal yapısı üzerindeki etkiler, 19 Mart sürecinin derin izlerini taşımaktadır. Millet olarak karşılaştığımız tehditler karşısında gösterdiğimiz direnç ve birlik arayışı, bu dönemde daha da anlam kazanmıştır. Onur Alp Yılmaz'ın analizleri, bu bir yıllık süreçte Türk milletinin hem iç tartışmalarda hem de uluslararası alanda kendi çıkarlarını koruma ve milli egemenliğini pekiştirme çabalarını mercek altına alıyor. Yaşananlar, Türk kimliğinin ve değerlerinin korunması noktasında gösterilmesi gereken titizliği, milli eğitimin önemini ve devletin stratejik karar alma mekanizmalarının ne denli hayati olduğunu bir kez daha hatırlatmıştır. Bu dönem, Türk milliyetçileri için milli bir uyanışın ve Türk varlığını tehdit eden unsurlara karşı daha kararlı bir duruş sergilemenin gerekliliğini vurgulamıştır.
+
+3. Gelecek dönem, Türk milletinin kendi kaderini tayin etme iradesini daha da güçlü bir şekilde ortaya koyacağı bir süreç olacaktır. 19 Mart süreci ve sonrasında yaşananlar, bize milli birliğin ve beraberliğin sadece bir slogan değil, varoluşsal bir zorunluluk olduğunu öğretmiştir. Türkiye'nin bağımsız ve güçlü bir devlet olarak ayakta kalması, toprak bütünlüğünü koruması ve gelecek nesillere daha müreffeh bir Türk yurdu bırakması için her bireyin üzerine düşen sorumluluğu idrak etmesi gerekmektedir. Türk milliyetçileri olarak, milli şuurun artırılması, Türk gençliğinin geçmişinden aldığı güçle geleceğe güvenle bakabilmesi ve Türk devletinin dünya sahnesindeki onurlu yerini daha da sağlamlaştırması temel hedefimizdir. Onur Alp Yılmaz'ın çizdiği çerçeve, gelecek dönemde Türk'ün Türk'ten başka dostu olmadığı gerçeğini ve milli gücümüzü iç dinamiklerimizle besleyerek yükseltmemiz gerektiğini bir kez daha hatırlatmaktadır.
