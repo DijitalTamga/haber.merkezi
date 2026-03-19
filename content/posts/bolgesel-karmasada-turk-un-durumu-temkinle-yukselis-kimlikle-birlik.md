@@ -1,0 +1,13 @@
+---
+title: "Bölgesel Karmaşada Türk'ün Durumu: Temkinle Yükseliş, Kimlikle Birlik"
+date: 2026-03-19T11:10:22+03:00
+draft: false
+cover:
+    image: "https://image.hurimg.com/i/hurriyet/90/620x350/69bbc01085323b0e839e1ac5.jpg"
+---
+
+MHP Genel Başkanı Devlet Bahçeli'nin "Vakit Türkiye'nin tedbir ve temkinle hareket etme vaktidir" şeklindeki beyanları, içinde bulunduğumuz çalkantılı küresel ve bölgesel denklemde son derece anlamlıdır. Dünya, bir yeniden yapılanma sürecinden geçerken, coğrafyamız da yeni çatışma ve gerilim odaklarına sahne olmaktadır. Bu ortamda Türkiye Cumhuriyeti'nin, Türk milletinin bekasını ve refahını güvence altına alacak akılcı ve stratejik adımlar atması elzemdir. Ancak bu "iç cepheyi muhkem hale getirme" hamlesi, sadece siyasi veya ekonomik tedbirlerle sınırlı kalmamalıdır. Temelinde, Türk kimliğinin, dilinin, tarihinin ve kültürünün çelikten bir kalkan gibi güçlendirilmesi yatmalıdır. Zira gerçek birlik ve beraberlik, ortak bir aidiyet şuurunda, yani Türklükte vücut bulur.
+
+Bahçeli'nin vurguladığı "tek yürek halinde ve hep birlikte Türkiye olma" çağrısı, Türkçüler için tam da bu bağlamda okunmalıdır. "Türkiye olmak", sadece bir coğrafyada yaşamak değil, Türk milletinin yüksek kültürel değerlerine, binlerce yıllık töresine ve geleceğe dönük büyük ülkülerine sarılmaktır. İç cepheyi muhkem hale getirmek; eğitimden sanata, bilimden teknolojiye her alanda Türk aklının, Türk ruhunun hakim kılınması, yabancı ideolojilerin ve kültürel yozlaşmanın her türlüsüne karşı milli direncin oluşturulmasıdır. Anadilimiz Türkçenin korunması ve yüceltilmesi, Türk tarih şuurunun nesiller boyu aktarılması, Türk gençliğinin milli karakter ve azimle donatılması, bu iç tahkimatın temel taşlarıdır. Milletin her ferdi, etnik kökeni ne olursa olsun Türk kimliğinde birleşmeli, ortak bir kültürel potada erimelidir.
+
+Bahçeli'nin "tarihi bir hamlenin bayram kıvamındaki barışçıl lezzeti" olarak nitelendirdiği gelecek vizyonu, Türk'ün kutlu yürüyüşünün bir sonraki adımı olmalıdır. Tedbir ve temkin, pasif bir bekleyiş değil, güçlü bir yeniden dirilişin ön hazırlığıdır. Bu hazırlık, Türk devletinin ve milletinin, Avrasya coğrafyasında ve ötesinde stratejik konumunu pekiştirmesi, Türk dünyasıyla kültürel ve ekonomik bağlarını güçlendirmesi, milli menfaatlerini kararlılıkla savunması anlamına gelir. Barış ve huzur içinde bayramlaşmak, ancak öz güveni yüksek, kimliğini ve gücünü idrak etmiş, geleceğe Türk'ün mührünü vurmaya hazır bir millet için gerçek bir anlam ifade eder. Dijital Tamga olarak inancımız odur ki, Türk milleti, tedbiri elden bırakmadan, kimliğinden ödün vermeden, büyük Türk ülküsüne ulaşmak için kararlılıkla ilerleyecektir.
