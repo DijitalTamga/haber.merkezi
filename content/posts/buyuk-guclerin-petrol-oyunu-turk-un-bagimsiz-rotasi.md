@@ -1,0 +1,13 @@
+---
+title: "Büyük Güçlerin Petrol Oyunu: Türk'ün Bağımsız Rotası"
+date: 2026-03-20T05:08:15+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2026/03/19/multimedia/19israel-iran-promo-7pm-zktm/19israel-iran-promo-7pm-zktm-mediumSquareAt3X.jpg"
+---
+
+Uluslararası ilişkiler sahnesinde, Ortadoğu gibi kadim coğrafyalarda yaşanan her gerilim, global enerji piyasalarını anında tetiklemekte, büyük güçlerin hamlelerini de beraberinde getirmektedir. Son gelişmeler, ABD yönetiminin, İran'daki tansiyonun artırdığı petrol fiyatlarını düşürmek adına, paradoksal bir şekilde, İran petrolüne yönelik bazı yaptırımları kaldırma seçeneğini masaya yatırdığını göstermektedir. Bu durum, bize bir kez daha hatırlatmıştır ki, devletlerarası ilişkilerde temel motivasyon, ideolojik söylemlerden ziyade, rasyonel ve pragmatik ulusal çıkarlardır. ABD, kendi ekonomik istikrarını ve küresel liderlik pozisyonunu korumak adına, dünkü düşmanıyla bugün masaya oturmayı dahi göze alabilmektedir. Bu, dış politikada bir "ilke" arayışından çok, "çıkar" dengesine dayalı soğuk bir hesaplaşmadır.
+
+Türk milleti olarak, bu jeopolitik satranç tahtasındaki her hamleyi dikkatle izlemek zorundayız. Bizim için petrol fiyatlarının yükselmesi, sanayimizden hane halkına kadar her alanda doğrudan ekonomik yüktür. Düşük petrol fiyatları kısa vadede ekonomik rahatlama sağlayabilir gibi görünse de, bu rahatlamanın başka bir ülkenin stratejik manevralarının bir sonucu olması, uzun vadede asla kalıcı ve güvenilir bir çözüm değildir. Kendi enerji bağımsızlığını sağlamamış bir millet, enerji politikalarını başkalarının eline bırakmış demektir. Bu durum, ekonomik bağımsızlığımız kadar, siyasi ve stratejik bağımsızlığımızı da tehdit eder. Biz, başkalarının oyun kurduğu bir sahada figüran olmak yerine, kendi oyunumuzu kuran, kendi kurallarımızı belirleyen bir millet olmalıyız.
+
+Türk'ün yolu nettir: Kendi ulusal çıkarlarını merkeze alan, bölgesel ve küresel dengeleri iyi okuyan, basiretli ve güçlü bir dış politika inşa etmek. Enerji kaynaklarını çeşitlendirmek, yerli ve milli enerji teknolojilerine yatırım yapmak, kendi coğrafyamızda barışı ve istikrarı sağlamak adına proaktif roller üstlenmek mecburiyetindeyiz. Kimsenin maşası olmadan, kimsenin kurbanı olmadan, sadece Türk milletinin bekası ve refahı için çalışmalıyız. Dijital Tamga olarak, bu büyük güçlerin petrol oyunlarında dahi, Türk'ün kendi bağımsız rotasını çizme iradesini her zaman vurgulayacak, bu yolda atılan her adımı destekleyecek ve milletimizin uyanışına katkı sunmaya devam edeceğiz. Tamga vuran, kendi kaderini kendi çizen bir Türk milleti vizyonuyla, geleceğe yürümeliyiz.
