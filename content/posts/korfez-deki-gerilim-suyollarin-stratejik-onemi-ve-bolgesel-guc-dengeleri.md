@@ -1,0 +1,13 @@
+---
+title: "Körfez'deki Gerilim: Suyolların Stratejik Önemi ve Bölgesel Güç Dengeleri"
+date: 2026-04-02T19:38:58+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Körfez İşbirliği Konseyi (GCC) Genel Sekreteri Jassim al-Budaiwi'nin Birleşmiş Milletler Güvenlik Konseyi'ne yaptığı çağrı, bölgedeki stratejik gerilimin ve deniz ticaret yollarının kırılganlığının açık bir göstergesidir. Al-Budaiwi, İran'ın bölgedeki eylemleri karşısında Körfez suyollarında "kesintisiz seyrüseferin" güvence altına alınması gerektiğini vurgularken, aslında sadece Körfez ülkelerinin değil, küresel ekonominin can damarı olan bu arterlerin güvenliğine yönelik endişeleri dile getirmiştir. Bu çağrı, Ortadoğu coğrafyasının sadece petrol ve doğalgaz rezervleriyle değil, aynı zamanda hayati önem taşıyan deniz ticaret rotalarıyla da küresel jeopolitikte ne kadar merkezi bir konumda olduğunu gözler önüne sermektedir.
+
+Bölgedeki bu tür gerilimler, kesinlikle dini veya mezhepsel çatışmaların ötesinde, tam anlamıyla bir güç ve etki mücadelesidir. İran'ın bölgedeki faaliyetleri, kendi stratejik derinliğini artırma ve mevcut statükoyu dönüştürme arayışının bir parçası olarak okunmalıdır. Buna karşılık, GCC ülkelerinin BM'ye yaptığı başvuru ise hem kendi güvenlik endişelerini uluslararası arenaya taşıma hem de potansiyel dış müdahaleler için zemin hazırlama amacı taşımaktadır. Bu denklemde, uluslararası kurumların ne denli etkili olabileceği tartışmalı bir konudur; zira bölgedeki her aktör, kendi ulusal çıkar ve beka anlayışı çerçevesinde hamleler yapmaktan çekinmemektedir. Bu durum, Türkiye gibi bölgesel bir güç için, kendi ulusal menfaatlerini koruma ve bölgedeki gelişmeleri rasyonel bir perspektifle değerlendirme zorunluluğunu ortaya koymaktadır.
+
+Türk milliyetçiliğinin perspektifinden bakıldığında, Körfez'deki bu gerilimler, Türkiye'nin kendi jeopolitik konumunu ve bölgesel liderlik potansiyelini pekiştirmesi adına kritik dersler içermektedir. Başkalarının uluslararası örgütlerden medet umduğu bir ortamda, Türkiye'nin kendi gücüne, bağımsız dış politikasına ve milli iradesine dayanması elzemdir. Stratejik deniz yollarının güvenliği, enerji arzının sürekliliği ve bölgesel istikrar, Türkiye'nin uzun vadeli hedefleri için vazgeçilmezdir. Bu bağlamda, Türkiye, Körfez'deki güç mücadelelerini yakından takip etmeli, ancak taraf olmak yerine, kendi ulusal menfaatlerini önceleyerek bölgede dengeleyici ve yapıcı bir rol üstlenmenin yollarını aramalıdır. Kendi göbeğini kendi kesen, güçlü ve bağımsız bir Türk devleti anlayışı, bu tür bölgesel karmaşalarda yol gösterici olacaktır.
