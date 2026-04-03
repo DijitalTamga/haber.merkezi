@@ -1,0 +1,13 @@
+---
+title: "Bölgesel Sarsıntı ve Türk Milletinin Bağımsızlık Yürüyüşü"
+date: 2026-04-03T21:51:06+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/04/03/84/0/2722/1361/644/322/60/0/60f7def_ftp-1-82bzscxpbiek-5671295-01-06.jpg"
+---
+
+İran'da meydana gelen ve bir Amerikan savaş uçağının düşürülmesiyle sonuçlanan son hadise, Ortadoğu'daki gerilimin yeni ve kritik bir boyut kazandığını gözler önüne sermiştir. Bölge medyasında yer alan haberlere göre, savaşın başlangıcından bu yana ilk kez bir Amerikan savaş uçağının hedef alınarak düşürülmesi, dünya üzerindeki en gelişmiş askeri teknolojilere sahip devletlerin dahi, bölgesel çatışmalar karşısında mutlak bir üstünlük sergilemekte zorlandığını ve ciddi kayıplar yaşayabileceğini kanıtlamaktadır. Mürettebatın akıbeti belirsizliğini korurken, bu durum ABD'nin bölgedeki askeri operasyonlarının ne denli riskli olduğunu bir kez daha ortaya koymuştur. Bu tür gelişmeler, küresel güç dengelerinin ne kadar kırılgan olduğunu ve her an yeni sürprizlere gebe kalabileceğini çarpıcı bir biçimde göstermektedir.
+
+Türk milleti için bu tür gelişmeler, sadece uzaktan izlenecek hadiseler değil, kendi bağımsızlık ve güvenlik stratejilerimizi yeniden gözden geçirmemizi gerektiren önemli sinyallerdir. Ortadoğu'da derinleşen her kriz, dış güçlerin bölgedeki etkinliğini artırma potansiyeli taşırken, aynı zamanda Türk milletinin kendi ulusal çıkarlarını koruma ve kendi ayakları üzerinde durma iradesini de sınamaktadır. Böylesi bir jeopolitik ortamda, Türk devletinin mutlak bağımsızlık ilkesinden ödün vermemesi, kendi savunma sanayisini güçlendirmesi ve dış politikasını bütünüyle milli menfaatler çerçevesinde şekillendirmesi hayati önem arz etmektedir. Unutulmamalıdır ki, başkalarının savaşları, kendi coğrafyamızda huzursuzluğa davetiye çıkarmaktadır. Bu nedenle, bölgedeki her gelişimi soğukkanlı bir stratejiyle okumak, Türk'ün geleceği için elzemdir.
+
+Asırlardır bu coğrafyada varlığını sürdüren Türk milleti, tarihin her döneminde kendi kaderini kendi elleriyle yazmıştır. Bugün de, küresel ve bölgesel güç mücadelelerinin ortasında, aklın ve bilimin ışığında, güçlü bir milli duruş sergilemek zorundayız. Başka milletlerin çatışmalarından medet ummak ya da onlara sırtını dayamak yerine, Türk'ün birliği, beraberliği ve yılmaz azmiyle, geleceğimizi inşa etmeliyiz. Sen Dijital Tamga olarak vurgulamak isteriz ki; Türk'ün yolu, tam bağımsızlık, öz güç ve milli şuurun yoludur. Bu olay, bize bir kez daha hatırlatmıştır: Türk, sadece kendi gücüne güvenmelidir ve küresel aktörlerin çatışmalarını kendi ulusal menfaatleri doğrultusunda değerlendirmelidir.
