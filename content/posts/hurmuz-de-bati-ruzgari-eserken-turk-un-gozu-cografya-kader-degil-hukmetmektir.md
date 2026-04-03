@@ -1,0 +1,13 @@
+---
+title: "Hürmüz'de Batı Rüzgarı Eserken Türk'ün Gözü: Coğrafya Kader Değil, Hükmetmektir!"
+date: 2026-04-03T17:01:18+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Bölgesel gerilimlerin had safhada olduğu bir dönemde, uluslararası kamuoyu, Fransız CMA CGM şirketine ait bir konteyner gemisinin Hürmüz Boğazı'ndan geçişine tanıklık etti. ABD ve İsrail'in İran'a yönelik çatışmalarının başladığı günden bu yana, bir Fransız gemisinin bu kritik geçidi kullanması, basit bir ticari faaliyetin ötesinde, jeopolitik bir mesaj barındırmaktadır. Basra Körfezi'ni dünya okyanuslarına bağlayan, küresel enerji tedarikinin can damarı olan Hürmüz Boğazı, her zaman stratejik önemiyle öne çıkmıştır. Ancak mevcut konjonktürde, bu geçişin Batılı bir güç tarafından yapılması, bölgedeki dengelerin ne denli kırılgan ve çok yönlü olduğunu bir kez daha gözler önüne sermektedir.
+
+Bu durum, sadece Uzak Doğu ile Batı arasındaki ticari rotaların ötesinde, Türkiye'nin milli menfaatleri açısından da derinlemesine incelenmelidir. Ortadoğu'daki her gerilim, her güç mücadelesi, ne yazık ki Türkiye'yi doğrudan etkileme potansiyeli taşımaktadır. Fransa gibi bir Batılı gücün, böylesi hassas bir dönemde Hürmüz'de varlık göstermesi, bölgedeki nüfuz mücadelelerinin yeni bir safhaya geçtiğinin işaretidir. Türk milleti olarak, kadim coğrafyamızda oynanan bu büyük satranç oyununu dışarıdan bir gözlemci gibi izlemek, milli geleceğimize yapılacak en büyük ihanet olur. Bölgenin asli unsuru ve tarihsel hamisi olan Türkiye, enerji güvenliğinden ticaret yollarına, jeopolitik etkiden kültürel mirasa kadar her alanda bu denklemin aktif bir parçası olmak zorundadır. Başkalarının çizdiği haritalarda kaybolmak yerine, kendi yolumuzu çizme sorumluluğumuz vardır.
+
+Hürmüz'deki bu son gelişme, Türk devlet aklına, bölgedeki olaylara sadece tepki veren değil, aynı zamanda onları şekillendiren bir strateji geliştirme gerekliliğini hatırlatmaktadır. Milli hedeflerimiz doğrultusunda, diplomasiden ekonomik güce, askeri kabiliyetten kültürel etkiye kadar tüm unsurları kapsayan bütüncül bir yaklaşım benimsenmelidir. Türkiye, etrafındaki her krizi bir fırsata çevirebilme potansiyeline sahiptir. Ancak bunun için kendi gücüne güvenen, kimseden icazet almayan, Türk'ün kutlu yürüyüşüne yakışır bir irade sergilemek şarttır. Coğrafya bir kader değildir; o coğrafyaya yön veren, kendi geleceğini tayin eden kudretli bir milletin hükümranlık alanı ve stratejik atılım noktasıdır. Türk milleti, Hürmüz'den Karadeniz'e, Akdeniz'den Orta Asya'ya uzanan geniş coğrafyada kendi mührünü vurma azmi ve kararlılığını bir kez daha göstermelidir.
