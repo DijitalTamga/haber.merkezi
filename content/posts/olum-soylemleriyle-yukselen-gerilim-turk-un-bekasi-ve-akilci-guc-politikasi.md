@@ -1,0 +1,13 @@
+---
+title: "Ölüm Söylemleriyle Yükselen Gerilim: Türk'ün Bekası ve Akılcı Güç Politikası"
+date: 2026-04-07T16:54:34+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Dünya, küresel ve bölgesel güçlerin ağız dalaşına tutuştuğu tehlikeli bir döneme tanıklık ediyor. ABD Başkanı Trump'ın "medeniyet yok olur" tehdidine karşı, İran Cumhurbaşkanı Pezeşkiyan'ın "14 milyon kişinin savaşta ölmeye hazır olduğu" açıklaması, bölgemizdeki gerilimin ne denli ciddiyet kazandığını gözler önüne sermektedir. Savaşın 39. gününde, Ortadoğu gibi kadim medeniyetlerin beşiği olan bir coğrafyada sarf edilen bu türden sözler, sadece kuru birer tehdit olmaktan öte, insanlığın geleceğini tehlikeye atan birer kıvılcım niteliğindedir. Bu çatışma ortamı, Türk milletinin kendi bekasını ve stratejik çıkarlarını her zamankinden daha dikkatli bir şekilde gözetmesini zorunlu kılmaktadır.
+
+Bir yanda "medeniyetin yok oluşu" gibi küresel bir felaketi dillendiren bir süper güç, diğer yanda ise milyonlarca insanının canını feda etmeyi göze aldığını ilan eden bir bölgesel aktör... Bu iki uç nokta arasındaki gerilim, ne yazık ki sadece tarafları değil, tüm komşu coğrafyaları da doğrudan etkileme potansiyeli taşımaktadır. "14 milyon can feda etme" söylemi, bir milletin varlığını korumak adına atılacak en son adımlardan biri olabilirken, bu tür bir söylemin kolayca telaffuz edilmesi, insan hayatının değersizleştirildiği trajik bir zihniyeti gözler önüne sermektedir. Türkçü bakış açısıyla, bir milletin gerçek gücü, evlatlarını gereksiz yere feda etmekte değil, onları korumakta, refah içinde yaşatmakta ve milli hedefler doğrultusunda akılcı stratejilerle geleceğe taşımaktadır. Küresel medeniyetin yok oluşu tehditleri ise, güç ve çıkar eksenli politikaların dünyayı ne denli uçuruma sürükleyebileceğinin acı birer göstergesidir.
+
+Türk milleti olarak, başkalarının savaş çığlıklarına kulak tıkamalı, ancak gelişmeleri de asla göz ardı etmemeliyiz. Tarihin her döneminde kendi yolunu kendi çizen, bağımsız ve güçlü bir iradeye sahip olan Türk milleti, bu tehlikeli oyunda figüran olmaktan kaçınmalıdır. Kendi güç ve menfaatlerimizi ön planda tutarak, bölgemizde istikrarı sağlayacak, Türk dünyasının birliğini pekiştirecek ve milli bekâmızı güvence altına alacak akılcı ve proaktif politikalar geliştirmeliyiz. Mehmetçiğin kanını başkalarının hırs uğruna akıtmak yerine, Türk'ün sarsılmaz birliğini, ekonomik gücünü ve modern ordusunu milli çıkarlarımız doğrultusunda, caydırıcı bir güç olarak kullanmalıyız. Gelecek, kendini koruyan, akılcı adımlar atan ve kendi kaderini kendi elleriyle çizen milletlerin olacaktır. Türk'ün yolu, ölüm değil, hür ve müreffeh bir yaşam yoludur!
