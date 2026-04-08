@@ -1,0 +1,13 @@
+---
+title: "Yabancı Ellerdeki Ateş, Türk Yurdunun Sınırında: Bölgesel Kaosa Türk Bakışı"
+date: 2026-04-08T00:05:15+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Amerika Birleşik Devletleri Başkanı Donald Trump'ın İran'a yönelik altyapı yıkım tehditleri ve uzmanların bu durumun bölgesel çatışmaları körükleyeceği yönündeki uyarıları, bir kez daha kadim coğrafyamızın nasıl dış güçlerin iradesine tabi bir satranç tahtasına dönüştüğünü gözler önüne sermektedir. 'Sonu gelmez' olarak nitelendirilen bu potansiyel çatışma sarmalı, ne yazık ki bölgemizde yıllardır süregelen dış müdahalelerin ve güç savaşlarının yeni bir perdesinden ibarettir. Kendi menfaatleri uğruna, bölgemizdeki istikrarı hiçe sayan bu güçlerin eylemleri, sadece yeni gerilimlere kapı aralamakla kalmayıp, Türk ve bölge halklarının refah ve güvenliğini doğrudan tehdit etmektedir. Bu, birileri için ‘sonu gelmez bir çatışma’ olabilir, ancak Türk milleti için, dışarıdan dayatılan her kriz, kendi güvenliğini sağlama zorunluluğunu pekiştiren bir uyarıdır.
+
+Bu durum, biz Türkçüler için, bölgemizde cereyan eden her olayın, öncelikle ve nihayetinde Türk milletinin çıkarları doğrultusunda değerlendirilmesi gerektiğini bir kez daha kanıtlamaktadır. Amerika'nın stratejik hamleleri veya İran'ın bu hamlelere vereceği tepkiler, bizler için taraf tutulması gereken bir siyasi tercih değil, Türk yurdunun sınırlarına ve çıkarlarına potansiyel tehdit oluşturan gelişmelerdir. Bu coğrafyada yaşayan hiçbir milletin kaderi, Washington ya da Tahran'ın politikalarıyla çizilmemelidir. Bölgesel istikrarsızlık, göç akınları, ekonomik darbeler ve artan terör riski gibi olumsuz sonuçlar, en çok Türkiye ve çevresindeki kardeş toplulukları etkilemektedir. Dolayısıyla, Türk milleti, bu türden güç savaşlarına asla figüran olmamalı, kendi özgün ve bağımsız yolunu çizmelidir.
+
+Tamga'nın duruşu nettir: Türk milleti, kendi varlığını ve güvenliğini sağlamak için kimseye bel bağlamadan, tamamen kendi gücüne ve iradesine dayanmalıdır. Bölgemizde yükselen tansiyon karşısında, Türk devletlerinin birliği, bölgesel işbirliği ve güçlü bir millî duruş her zamankinden daha hayati bir önem taşımaktadır. Dış güçlerin kendi çıkarları için bölgede estirdikleri rüzgarlara kapılmadan, Türk yurdunun her köşesinde huzur ve istikrarı sağlamak, Türk milletinin asli görevidir. Kendi savunma sanayimizi geliştirmek, ekonomik bağımsızlığımızı güçlendirmek ve diplomatik kanallarla bölgemizde kalıcı barışın tesisi için öncü rol oynamak, Türk'ün egemenlik anlayışının temelini oluşturmalıdır. Yabancı ellerdeki bu ateşin, Türk yurdunda yangına dönüşmesine asla izin verilmeyecektir.
