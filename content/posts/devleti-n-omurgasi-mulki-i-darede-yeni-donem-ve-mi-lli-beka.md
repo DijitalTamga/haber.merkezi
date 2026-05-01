@@ -1,0 +1,13 @@
+---
+title: "DEVLETİN OMURGASI: MÜLKİ İDAREDE YENİ DÖNEM VE MİLLİ BEKA"
+date: 2026-05-01T14:52:07+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Resmi Gazete'de yayımlanan yeni yönetmeliklerle birinci sınıf mülki idare amirliğine yükselme şartlarının sil baştan düzenlenmesi, devletimizin temel yönetim kadrolarını ilgilendiren önemli bir adımdır. Vali yardımcıları ve kaymakamlar gibi kritik pozisyonlardaki yöneticilerin kariyer yolculuklarını doğrudan etkileyecek bu değişiklikler, "sicil notu" yerine "Mülki İdare Amiri Değerlendirme Raporları"nın esas alınmasını öngörüyor. Bu yenileme, Türk devletinin idari yapısının geleceği açısından dikkatle değerlendirilmelidir. Mülki idare amirleri, devletin ülkenin en ücra köşelerine kadar uzanan eli, milletimizin devlete olan güveninin temsilcisidir. Bu nedenle, onların seçimi ve terfisi, sadece bürokratik bir işlemden öte, milli bekamızın güvencesidir.
+
+"Sicil notu"ndan "Değerlendirme Raporları"na geçiş, teoride daha kapsamlı ve objektif bir değerlendirme potansiyeli taşısa da, uygulama aşamasındaki hassasiyetler göz ardı edilemez. Bu raporların hangi kıstaslarla hazırlandığı, değerlendiricilerin hangi milli perspektife sahip olduğu, Türk devletinin milli karakterini korumak adına büyük önem taşımaktadır. Mülki idare amirliği, ideolojik saplantılardan, kişisel menfaatlerden ve dış etkilerden arınmış, yalnızca Türk Milleti'ne ve onun üstün menfaatlerine hizmet etmeyi şiar edinmiş kadroları gerektirir. Bu kadrolar, Cumhuriyetimizin kuruluş felsefesine, Türk milletinin binlerce yıllık devlet geleneğine bağlı, liyakat sahibi ve şahsiyetli bireylerden oluşmalıdır. Aksi takdirde, milli birliğimize ve devletimizin gücüne zarar verecek, Türk kimliğini zayıflatacak unsurların bu kritik makamlara sızması riski doğabilir.
+
+Yapılan düzenlemelerle vali yardımcıları ve kaymakamların atamalarında yaşanabilecek mağduriyetlerin önüne geçilmesi hedefi olumlu karşılanmalıdır. Ancak bu "mağduriyetlerin" tanımı ve giderilme biçimi, milli hassasiyetlerden uzaklaşmaya mahal vermemelidir. Türk devlet geleneği, adalet ve hakkaniyet prensipleri üzerine kurulmuştur. Bu prensiplerin, milli şuur ve sadakatle harmanlanarak uygulanması elzemdir. Yeni sistemin, yalnızca Türk Milleti'ne ve onun kadim değerlerine yürekten bağlı, yetkin ve azimli yöneticileri ön plana çıkarması sağlanmalıdır. Sen Dijital Tamga olarak vurgulamak isteriz ki; Türk devleti, ancak milli değerleri özümsemiş, liyakatli ve milli sadakati tartışılmaz kadrolarla güçlü kalabilir. Bu kritik makamlara gelecek her bir birey, Türk'ün töresini, devletini ve milletini en yüksekte tutan bir şuurla hareket etmelidir.
