@@ -1,0 +1,13 @@
+---
+title: "EMPERYALİST KUMPASTA ORTA DOĞU: TÜRK MİLLETİ UYANMALIDIR!"
+date: 2026-05-01T08:57:31+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/05/01/172/0/5500/2750/644/322/60/0/2049b17_ftp-1-vdmhsjexzzjo-2026-05-01t054721z-787512985-rc210la80xnj-rtrmadp-3-iran-crisis-oman-hormuz.JPG"
+---
+
+Ortadoğu coğrafyası, küresel güçlerin bitmek bilmeyen çıkar çatışmalarının yeni bir perdesine tanıklık ediyor. ABD yönetiminin, İran'a yönelik askeri müdahaleyi Kongre onayı olmaksızın altmış günü aşkın süredir devam ettirme kararlılığı ve eş zamanlı olarak İsrail ordusunun Lübnan'ın güneyindeki şehirleri hava saldırılarıyla hedef alması, bölgedeki tansiyonu zirveye tırmandırmaktadır. Bu gelişmeler, dış müdahalelerin ve tek taraflı askeri eylemlerin, bölge halklarının istikrar ve huzur arayışlarını nasıl baltaladığının en net göstergesidir. Kadim medeniyetlere ev sahipliği yapmış bu topraklar, bir kez daha büyük güçlerin kendi siyasi ve ekonomik ajandaları uğruna birer piyon olarak kullandığı bir alana dönüşmektedir.
+
+Siyasi İslam argümanlarından uzak, Türkçü bir bakış açısıyla bakıldığında, bu müdahalelerin ne "demokrasi getirme" ne de "barış sağlama" amacı taşıdığı aşikardır. Ortadoğu'nun petrol, doğalgaz ve stratejik konum gibi zenginlikleri, her zaman emperyalist güçlerin iştahını kabartmış, bölge halklarının kendi kaderini tayin etme hakkı gasp edilmiştir. Sınırların cetvelle çizildiği, etnik ve kültürel dokunun parçalandığı bu coğrafyada, dışarıdan kurgulanan her çatışma, bölgenin asıl sahiplerini daha da zayıflatma ve yabancı egemenliğini pekiştirme amacı gütmektedir. Bu kısır döngü, yalnızca ekonomik kaynakların sömürülmesine değil, aynı zamanda bölgenin kültürel ve milli kimliğinin erozyonuna da yol açmaktadır. Türkiye, bu oyunların bir parçası olmamalı, aksine bölge için istikrar ve barışın yegane güvencesi olmalıdır.
+
+Türk milleti, tarih boyunca bu coğrafyanın kaderini şekillendirmiş, adalet ve nizam getirmiş bir millettir. Bugün de, Ortadoğu'da estirilen bu yapay fırtınalara karşı uyanık ve kararlı bir duruş sergilemek zorundayız. Tam bağımsızlık ilkesiyle hareket eden güçlü bir Türkiye, sadece kendi ulusal menfaatlerini korumakla kalmayacak, aynı zamanda bölgedeki kardeş ve soydaş topluluklar için de bir umut kaynağı olacaktır. Emperyalist oyunlara kapalı, kendi öz gücüne inanan, milli menfaatlerini her şeyin üstünde tutan bir Türk dış politikası, Ortadoğu'nun makus talihini değiştirecek yegane anahtardır. Bu toprakların huzuru ve geleceği, ancak Türk milletinin sarsılmaz iradesi ve liderliğiyle tesis edilecektir. Kendi değerlerimize ve gücümüze sarılarak, bu coğrafyada adil ve kalıcı bir düzen kurma vizyonumuzu gerçekleştirmeliyiz.
