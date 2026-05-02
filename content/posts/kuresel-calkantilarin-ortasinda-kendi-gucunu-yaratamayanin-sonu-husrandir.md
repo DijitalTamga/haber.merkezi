@@ -1,0 +1,13 @@
+---
+title: "Küresel Çalkantıların Ortasında: Kendi Gücünü Yaratamayanın Sonu Hüsrandır!"
+date: 2026-05-02T07:26:10+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Amerika Birleşik Devletleri'nin Avrupa'ya yaptığı 'silah sevkiyatlarında gecikmeler yaşanabilir' uyarısı, küresel güç dengelerinin ve savunma sanayi kapasitelerinin geldiği noktayı net bir biçimde gözler önüne sermektedir. Özellikle İran ile olası bir çatışmanın mevcut askeri stokları hızla tüketeceği, hatta Ukrayna'nın Rusya'ya karşı savunması için hayati önem taşıyan sevkiyatları dahi aksatabileceği yönündeki bu bildirim, uluslararası ilişkilerde bir dönüm noktasına işaret etmektedir. Dünya, her geçen gün daha da karmaşıklaşan ve belirsizliklerle dolu bir jeopolitik tabloyla karşı karşıyadır. Bu durum, ülkelerin kendi güvenliklerini ve çıkarlarını koruma kapasitelerini sorgulatırken, dışa bağımlılığın ne denli büyük bir risk taşıdığını da göstermektedir.
+
+Bu gelişmelerin ışığında, özellikle stratejik konumu ve hassas çevresi itibarıyla Türkiye gibi ülkelerin alması gereken dersler açıktır. Yıllarca 'garanti' sayılan dış destek ve tedarik zincirlerinin, beklenmedik kriz anlarında nasıl da kolayca kırılabileceği, hatta kendi çıkarları doğrultusunda manipüle edilebileceği bir kez daha görülmüştür. Avrupa ülkelerinin savunma ihtiyaçları için tek bir süper güce bağımlılıkları, onları küresel krizler karşısında zayıf ve pazarlık gücü olmayan bir konuma düşürmektedir. Coğrafyamızda İran gibi komşu bir ülkeyi doğrudan ilgilendiren olası bir savaş senaryosu ve Ukrayna'da devam eden gerilim, bölgemizin istikrarını derinden etkileyecek potansiyele sahiptir. Türkiye, bu tür bölgesel yangınların kendi sınırlarına sıçramaması ve ulusal çıkarlarının korunması için her zamankinden daha güçlü ve bağımsız bir savunma yapısına sahip olmak zorundadır.
+
+Millet olarak, bu uyarılardan çıkaracağımız en temel sonuç; savunma sanayii alanında tam bağımsızlığımızı bir an bile aksatmadan sürdürmemiz gerektiğidir. Kendi uçaklarımızı, kendi insansız hava araçlarımızı, kendi füzelerimizi ve kendi gemilerimizi üreterek dışa bağımlılığı minimize eden adımlarımız, Türkiye'yi böylesine çalkantılı zamanlarda ayakta tutacak yegane güvencedir. Baykar'dan TUSAŞ'a, ASELSAN'dan ROKETSAN'a kadar milli mühendislerimizin ve işçilerimizin alın teriyle yükselen bu değerler, Türk milletinin geleceğinin teminatıdır. Vadedilmiş dış yardımlar veya kırılgan ittifaklar yerine, kendi öz gücümüzle inşa ettiğimiz bir savunma kalkanı, Türk devletinin ve milletinin bağımsızlığını sonsuza dek koruyacaktır. Unutulmamalıdır ki, kendi kaderini kendi elleriyle yazan milletler, tarihin acımasız sayfalarında değil, zafer sütunlarında yerlerini alır.
