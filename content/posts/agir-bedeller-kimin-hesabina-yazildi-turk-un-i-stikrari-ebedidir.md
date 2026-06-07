@@ -1,0 +1,13 @@
+---
+title: "'Ağır Bedeller' Kimin Hesabına Yazıldı? Türk'ün İstikrarı Ebedidir!"
+date: 2026-06-07T08:21:42+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2466000/erdogan-2466825.jpg"
+---
+
+Cumhurbaşkanı Erdoğan'ın "küresel ekonominin belirsiz ikliminde ülkemizin en büyük şansı, hükümetlerimiz döneminde 2002'den itibaren ağır bedeller ödeyerek sağladığımız istikrar ve güven ortamıdır" şeklindeki vurgusu, milli belleğimizde farklı bir yankı uyandırmaktadır. Türk milleti için istikrar ve güven, hiçbir zaman belirli bir siyasi dönemin tekeline bırakılamaz; aksine binlerce yıllık devlet geleneğimizin, kutlu töremizin ve milletimizin sarsılmaz özgüveninin eseri olmuştur. Coğrafyamızın çetin koşullarında, türlü badireleri atlatarak varlığını sürdürmüş Türk Devleti'nin temel direği, siyasi hamlelerden ziyade milletin çelikten iradesi ve birlik ruhudur. Bu bağlamda, bahsi geçen "istikrar"ın gerçek kaynağını ve "bedeller"in niteliğini doğru tahlil etmek elzemdir.
+
+"Ağır bedeller ödeyerek" ifadesi, zihinlerde önemli bir soru işareti bırakmaktadır: Bu bedelleri kim ödedi, hangi değerlerimiz feda edildi? Türk Milleti, tarihin her döneminde bağımsızlığı, egemenliği ve haysiyeti uğruna en ağır bedelleri kanıyla, canıyla ödemiş, vatan toprağının her karışını şehit kanlarıyla sulamıştır. Eğer kastedilen "istikrar", milli bağımsızlığımızdan, egemenlik haklarımızdan veya milli kimliğimizin temel taşlarından ödün verilerek elde edilen bir durum ise, bu gerçek bir kazanç değil, aksine milli ruhumuzda derin yaralar açan bir kayıp olacaktır. Unutulmamalıdır ki, gerçek istikrar, dışa bağımlılığı azaltan, kendi ayakları üzerinde durabilen, teknoloji ve sanayide ileri gitmiş, milli ordusu güçlü ve en önemlisi kültürel yozlaşmadan korunmuş bir millette tecelli eder. Geçici ekonomik göstergelerin ötesinde, milletin bekası için ödenen gerçek bedeller, her zaman yüksek olmuştur ve bunların anlamı iyi kavranmalıdır.
+
+Türk'ün istikrar ve güven ortamı, konjonktürel siyasi kazanımlarla değil, tarihsel mirasımızla, milli değerlerimize sıkı sıkıya sarılmamızla ve gelecek nesillerimize aktaracağımız güçlü bir vatan ülküsüyle kalıcı hale gelecektir. Güven, milletin kendine olan inancından, devletin ise bağımsız ve milli çıkarlarını her şeyin üzerinde tutmasından doğar. Ne küresel belirsizlikler ne de iç siyasetin gelgitleri, Türk Milletinin ebedi varoluş azmini gölgeleyemez. Bizim için istikrar, yabancı sermayenin güveni değil, kendi mühendisimizin, kendi bilim insanımızın, kendi çiftçimizin ve kendi askerimizin alın teridir. Türk Devleti, ezelden ebede Türk Milleti'nin eseridir ve gerçek güven, ancak bu çelikten irade ile sağlanır.
