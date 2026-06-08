@@ -1,0 +1,13 @@
+---
+title: "Lübnan'da Yükselen Ateş: İran'ın Doğrudan Müdahalesi ve Bölgesel Kaos"
+date: 2026-06-08T17:49:34+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Ortadoğu coğrafyası, vekalet savaşlarının ve bölgesel rekabetin yarattığı kısır döngüden bir türlü kurtulamıyor. Son gelişmeler, bu kısır döngünün tehlikeli bir safhaya evrildiğini gözler önüne seriyor. Analistlerin dikkat çektiği üzere, İran'ın bölgedeki nüfuz stratejisi köklü bir değişim yaşıyor: artık vekil güçler aracılığıyla etki alanı yaratmak yerine, bu vekilleri kendi doğrudan ateş gücüyle koruma yoluna gidiyor. Bu stratejik dönüşümün yeni "kırılma noktası" olarak ise Lübnan işaret ediliyor. Bu durum, bölgenin zaten kırılgan olan yapısını daha da derin bir uçuruma sürüklüyor, çatışma riskini artırıyor ve tüm aktörleri yeni bir hesaplaşmanın eşiğine getiriyor.
+
+İran'ın bu strateji değişikliği, yalnızca vekil güçlerin kapasitesini artırmakla kalmayıp, bölgedeki dengeleri kökten sarsma potansiyeli taşıyor. Doğrudan askeri müdahale ihtimalinin yükselmesi, bölgesel çatışmaların sınırları aşarak daha geniş bir alana yayılma riskini beraberinde getiriyor. Bu durum, yüzyıllardır farklı etnik ve kültürel unsurların iç içe yaşadığı Ortadoğu'da yeni ayrışmaların ve kutuplaşmaların fitilini ateşleyebilir. Lübnan gibi hassas bir noktada yaşanacak herhangi bir tırmanma, zincirleme reaksiyonlarla tüm bölgeyi etkisi altına alabilecek bir kaosa davetiye çıkaracaktır. Unutulmamalıdır ki, vekalet savaşları üzerinden güç devşirmeye çalışmak ya da doğrudan askeri güçle denge kurmaya kalkışmak, bölgenin gerçek sorunlarına kalıcı çözümler sunmaktan çok uzaktır. Aksine, mevcut sorunları daha da içinden çıkılmaz hale getiren bir döngüye hizmet etmektedir.
+
+Bu tehlikeli tablo karşısında Türk milleti ve devleti için yegane yol, kendi ulusal çıkarlarını merkeze alan, basiretli ve güçlü bir dış politika izlemektir. Ortadoğu'nun derinleşen karmaşası, Türkiye'nin kendi güvenliğini ve istikrarını her şeyin üzerinde tutmasını zorunlu kılmaktadır. Bölgemizdeki vekil güçler üzerinden oynanan oyunlar ya da doğrudan askeri müdahalelerle yaratılmaya çalışılan yeni denklemler, Türkiye için her zaman bir beka meselesi olmuştur. Kendi köklü tarihi ve medeniyet mirasıyla bu coğrafyada güçlü bir aktör olan Türkiye, herhangi bir güç odağının piyonu olmaktan uzak durmalı, kendi özgün ve bağımsız yolunu çizmelidir. Türk'ün Türk'ten başka dostu olmadığı gerçeğiyle, bölgeden yayılan her türlü tehdide karşı uyanık, caydırıcı ve kararlı bir duruş sergilemek, barış ve istikrarın ancak güçlü bir Türkiye ile mümkün olabileceğini tüm dünyaya göstermek esas vazifemizdir.
