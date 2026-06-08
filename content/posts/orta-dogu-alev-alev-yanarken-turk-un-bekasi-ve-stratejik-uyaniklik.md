@@ -1,0 +1,13 @@
+---
+title: "Orta Doğu Alev Alev Yanarken: Türk'ün Bekası ve Stratejik Uyanıklık"
+date: 2026-06-08T00:17:51+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/06/07/617/0/7404/3702/644/322/60/0/875fa7e_ftp-1-nhf59x20vdh1-cc3ce7b901aa40a1adfa3f29a787352d-0-63247b2fe51f4ff8b4d9218eddbfdb51.jpg"
+---
+
+Orta Doğu coğrafyası, kadim çağlardan beri güç mücadelelerinin ve jeopolitik hesaplaşmaların merkezi olmuştur. Son günlerde İran'ın İsrail'e yönelik füze saldırısı ve İsrail'in "güçlü bir karşılık" verme tehdidiyle bu kadim coğrafya bir kez daha alev topuna dönme emareleri göstermektedir. İsrail ordusunun 11 füzenin tamamını etkisiz hale getirdiğini duyurması, çatışmanın boyutunu gözler önüne sererken, iki bölgesel gücün doğrudan karşı karşıya gelme ihtimali, bölgedeki istikrarı derinden sarsmaktadır. Türk milleti olarak, bu gelişmeler karşısında soğukkanlılıkla ve sadece ulusal çıkarlarımız çerçevesinde hareket etme mecburiyetindeyiz. Zira bu gerilim, sınırlarımızın hemen ötesinde yükselen bir ateş, Turan coğrafyasının kalbine doğru ilerleyen bir tehdittir.
+
+Bu çatışma, din veya mezhep çekişmesi değil, bölgesel hegemonya ve stratejik üstünlük mücadelesidir. Türkiye, bu tür gerilimlerde asla taraf olmamalı, ancak kendi bekasını ve istikrarını tehdit eden her türlü gelişmeyi dikkatle takip etmelidir. İran ve İsrail arasındaki bu doğrudan gerilim, bölgedeki dengeleri altüst etme potansiyeli taşırken, aynı zamanda dış güçlerin müdahale alanını genişletme riski de barındırmaktadır. Türk coğrafyasının etrafında dönen bu ateş çemberi, Suriye'den Irak'a, Kafkasya'dan Doğu Akdeniz'e uzanan geniş bir alanda domino etkisi yaratabilir. Bizim için önemli olan, bu yangının ülkemize sıçramaması ve Türk dünyasının ortak çıkarlarının korunmasıdır. Bu bağlamda, her iki aktörün de bölgeyi daha fazla kaosa sürükleyen adımları, Türk milletinin ferasetiyle sorgulanmalıdır.
+
+Böylesi bir dönemde, Türkiye'nin güçlü ve bağımsız duruşunu koruması hayati önem taşımaktadır. Bölgedeki her gelişmeyi kendi ulusal güvenlik ve jeopolitik çıkarları açısından değerlendiren bir strateji izlenmelidir. Türk ordusunun caydırıcılığı, ekonomimizin sağlamlığı ve milli birliğimizin gücü, bu çalkantılı coğrafyada bize yol gösterecek temel direklerdir. Ne ABD ne de başka bir dış gücün bölgedeki vekalet savaşlarına alet olmamalı, ne de tarihin derinliklerinden gelen ezeli rekabetleri kendi topraklarımıza taşımalarına izin vermeliyiz. Türk milleti, kendi istikametini kendi belirlemeli, Türk'ün Tamgası'nı bu çalkantılı coğrafyaya güçlü bir şekilde vurmalıdır. Ferasetle izlemeli, basiretle hareket etmeli ve daima "Önce Türkiye" demelidir.
