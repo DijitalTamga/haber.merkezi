@@ -1,0 +1,13 @@
+---
+title: "Teknolojinin Kanlı Yüzü: Global Markaların Koltan Utancı ve Kongo Dramı"
+date: 2026-06-10T07:18:07+03:00
+draft: false
+cover:
+    image: "https://i.guim.co.uk/img/media/33e60df009fdec547631627e7a17a773492cadf7/751_0_5000_4000/master/5000.jpg?width=140&quality=85&auto=format&fit=max&s=fd82f98516ba54c540eb5d6b5813e05b"
+---
+
+1. Global teknoloji ve e-ticaret devleri Amazon, Sony ve Ericsson gibi markaların, Demokratik Kongo Cumhuriyeti'nde (DKC) korkunç insanlık suçları işlemekle suçlanan M23 isyancılarına fon sağlayan "kanlı koltan" madenlerinden mineral temin ettiği yönündeki haberler, dijital çağın ardındaki karanlık gerçeği bir kez daha gözler önüne serdi. Global Witness tarafından yürütülen soruşturma, cep telefonları ve diğer elektronik cihazlarda kullanılan koltanın, geniş çaplı cinsel şiddet, infazlar ve işkencelerle anılan milislerin kontrolündeki bölgelerden kaçak yollarla elde edildiğini belirtiyor. Bu durum, günlük hayatımızın vazgeçilmezi haline gelen teknolojinin, dünyanın bir köşesinde yaşanan zulmün ve sömürünün doğrudan bir sonucu olabileceği gerçeğini acı bir şekilde yüzümüze vurmaktadır.
+
+2. Bir ulusun onuru, sadece kendi sınırları içindeki refahıyla değil, aynı zamanda küresel düzeyde etik ve insani değerlere ne kadar bağlı kaldığıyla da ölçülür. DKC'de yaşanan bu insanlık dışı manzaralar, modern dünyanın vicdanını derinden yaralamalıdır. Teknolojik ilerlemenin, masum insanların kanı ve gözyaşı üzerine inşa edilmesi kabul edilemez. Bu tür kanlı tedarik zincirleri, milletlerin şerefli duruşuna ve kendi değerlerine aykırıdır. Türk milleti olarak, sömürüye dayalı bu düzene sessiz kalmak, kendi milli ahlakımıza ve vicdanımıza ters düşer. Global markaların kar hırsıyla göz yumduğu bu zulüm, tüketicilerin de sorgulama ve hesap sorma sorumluluğunu beraberinde getirmektedir.
+
+3. Teknoloji dünyasının bu "kirli sırrı", bizlere bir kez daha, küresel ticaretin ve tedarik zincirlerinin şeffaflığı ile etik standartların ne denli hayati olduğunu göstermektedir. Bir milletin gerçek gücü, sadece ekonomik veya askeri kudretinde değil, aynı zamanda etik değerlere sıkı sıkıya bağlılığında yatar. Türkiye olarak, kendi ulusal menfaatlerimizi korurken, aynı zamanda insanlık onuruna yakışır bir dünya düzeni için de sesimizi yükseltmeliyiz. Tüketiciler olarak bilinçli tercihler yapmak, şirketlerden şeffaflık ve hesap verebilirlik talep etmek, bu zulüm çarkının dönmesine engel olmanın ilk adımlarıdır. Dijital çağın sunduğu imkanları kullanırken, arkasındaki insanlık dramlarına duyarsız kalmak, kendi değerlerimize ihanet etmekle eşdeğerdir. Şerefli bir geleceği inşa etmek, ancak vicdanın ve ahlakın ışığında mümkündür.
