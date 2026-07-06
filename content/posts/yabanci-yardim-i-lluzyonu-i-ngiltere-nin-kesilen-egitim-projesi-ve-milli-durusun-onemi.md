@@ -1,0 +1,13 @@
+---
+title: "Yabancı Yardım İllüzyonu: İngiltere'nin Kesilen Eğitim Projesi ve Milli Duruşun Önemi"
+date: 2026-07-06T10:08:02+03:00
+draft: false
+cover:
+    image: "https://i.guim.co.uk/img/media/8fe3bfd9209ce4fc803c25bb4ed0fe3aa3314837/0_0_2497_1996/master/2497.jpg?width=140&quality=85&auto=format&fit=max&s=1028c8fc470e044221bbf9a6c97fcab7"
+---
+
+Birleşik Krallık hükümetinin, Afrika, Asya ve Orta Doğu'da 1 milyon kız çocuğunun eğitime erişimini sağlamayı hedefleyen 45 milyon sterlin bütçeli "Kadınların Güçlenmesi İçin Yüksek Öğretimi Güçlendirme" (SHEFE) projesini, ekonomik gerekçelerle iki yıl gibi kısa bir sürede iptal etmesi, uluslararası ilişkilerdeki "yardım" kavramının gerçek yüzünü bir kez daha gözler önüne sermiştir. Bu karar, sözde küresel sorumluluk ve insani yardım söylemlerinin, ulusal çıkarlar ve ekonomik koşullar karşısında ne denli kırılgan olduğunu net bir şekilde göstermektedir. Projenin iptali, vaatlerin ve "medeniyet" misyonlarının, her zaman veren tarafın ekonomik tablosuna göre şekillendiğinin acı bir hatırlatıcısıdır.
+
+Yabancı yardımlar ve kalkınma projeleri, çoğu zaman birer yumuşak güç aracı olarak kullanılır; yardım eden ülkenin nüfuzunu artırma veya belirli bir siyasi ajandayı destekleme amacı taşır. Bu tür projeler, bağışçı ülkelerin kendi iç dinamikleri veya ulusal çıkarları değiştiğinde kolayca terk edilebilir. İngiltere'nin bu adımı, "yardım" adı altında yürütülen faaliyetlerin, asıl amacının altruizmden ziyade stratejik fayda olduğunu kanıtlar niteliktedir. Kendi ekonomisinde daralma yaşayan bir ülkenin ilk vazgeçtiği kalemlerin, kendi vatandaşlarına doğrudan hizmet etmeyen dış yardımlar olması rasyoneldir, ancak bu durum, yardıma muhtaç bırakılan coğrafyalara verilen sözlerin ne denli boş olduğunu da ortaya koyar.
+
+Bu gelişme, Türk dünyası ve milletimiz için önemli bir derstir. Kendi ulusal kalkınmamızı, eğitimimizi ve toplumsal refahımızı asla yabancı ellerin insafına terk etmemeliyiz. Eğitime yapılan yatırım, özellikle de kadınlarımızın ve kız çocuklarımızın çağdaş ve milli değerlerle donanmış bir eğitim alması, herhangi bir dış projenin lütfu değil, devletimizin ve milletimizin kendi öz kaynaklarıyla sağlaması gereken temel bir haktır ve ulusal bir vazifedir. Kendi ayakları üzerinde duran, kendi dinamikleriyle ilerleyen ve geleceğini dışarıdan gelecek yardımlara endekslemeyen bir millet, gerçek bağımsızlığı ve gücü elde eder. Türkiye Cumhuriyeti, tarih boyunca kendi kaderini kendi çizen bir millet olarak, bu türden "yardım" projelerinin gelip geçiciliğine aldanmamalı, gücünü ve geleceğini kendi öz varlığından, millî bilincinden ve çalışkanlığından almalıdır.
