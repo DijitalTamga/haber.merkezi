@@ -1,0 +1,13 @@
+---
+title: "Kutupbaşılık Hedefi: Türk Milletinin Kudreti mi, Siyasi Hamaset mi?"
+date: 2026-07-11T09:23:14+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2474000/erdogan-aa-2475148.jpg"
+---
+
+Cumhurbaşkanı Erdoğan'ın "yeni sistemin kutupbaşlarından biri olma yolunda ilerliyoruz" açıklaması, coğrafyamızda ve küresel düzlemde yaşanan köklü değişimlerin ortasında Türk Devleti'nin rolüne dair önemli bir iddiayı dile getirmektedir. Uluslararası güvenlik paradigmasının radikal bir dönüşümden geçtiği bu dönemde, Türk milletinin binlerce yıllık devlet geleneği ve cihan hâkimiyeti ülküsü, bu tür iddiaların ruhunda yatar. Kadimden beri dünya siyasetinde merkezi bir güç olmayı hedefleyen Türkler için "kutupbaşı" olmak, aslında yeni bir ideal değil, tarihimizin bize yüklediği bir misyonun güncel bir ifadesidir. Ancak bu ifadenin altının nasıl doldurulacağı, yol haritasının milli hedeflerle ne denli örtüştüğü kritik öneme sahiptir.
+
+Bir "kutupbaşı" olmak, sadece diplomatik söylemlerle ya da anlık bölgesel manevralarla değil, topyekûn bir milli güçle mümkündür. Gerçek bir kutupbaşı devlet; ekonomik bağımsızlığını sağlamış, savunma sanayisini tamamen öz kaynaklarıyla tahkim etmiş, bilim ve teknolojide çağın ilerisinde bir seviyeye ulaşmış, kültürel birliğini pekiştirmiş ve en önemlisi, dış politikasını kendi özgün Türk milli menfaatleri ekseninde şekillendirmiş bir devlettir. Bu süreçte, Türk Devleti'nin stratejik odak noktası, şüphesiz ki Anadolu merkezli, Avrasya'ya uzanan, kadim Türk coğrafyası ve Türk birliği vizyonu olmalıdır. Mevcut jeopolitik karmaşada, Türk'ün hak ettiği kutupbaşılık konumuna ulaşabilmek için, enerjimizi ve dikkatimizi milli hedeflerden saptıracak her türlü ikincil gündemden uzak durarak, doğrudan Türk Devleti'nin bekasına ve yükselişine hizmet edecek adımlara yoğunlaşmak elzemdir.
+
+Türk milletinin kutupbaşı olma potansiyeli, tarihsel birikimi, genç ve dinamik nüfusu ve stratejik coğrafyasıyla inkar edilemez bir gerçektir. Ancak bu potansiyeli siyasi hamasetin ötesine taşıyabilmek için, akılcı, gerçekçi ve Türk milliyetçiliğinin temel ilkelerine dayanan bir dış politika anlayışına ihtiyaç vardır. Kimseye bağlı olmadan, çıkar gruplarının ya da belirli ideolojilerin değil, sadece Türk milletinin yüksek menfaatlerini gözeten bir devlet aklı, bizi bu hedefe ulaştıracaktır. Geleceğin dünyasında söz sahibi, yol gösterici bir "kutupbaşı" olmak, ancak Türk Devleti'nin iç ve dış politikalarını milli kimlik ve milli güç doğrultusunda tutarlı bir şekilde yürütmesiyle mümkün olacaktır. Türk'ün kutupbaşılığı, sadece bir makam değil, bir duruş, bir kudret ve bir medeniyet meşalesi olacaktır.
