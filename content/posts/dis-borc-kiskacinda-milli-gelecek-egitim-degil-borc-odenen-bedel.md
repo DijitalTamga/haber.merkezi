@@ -1,0 +1,13 @@
+---
+title: "Dış Borç Kıskacında Milli Gelecek: Eğitim Değil, Borç Ödenen Bedel"
+date: 2026-07-12T23:49:25+03:00
+draft: false
+cover:
+    image: "https://i.guim.co.uk/img/media/1f3499a36b13998727100bda701915513e4c6156/149_0_1890_1512/master/1890.jpg?width=140&quality=85&auto=format&fit=max&s=3a9965c4a40c281dd153f2e8e18170a6"
+---
+
+Birleşmiş Milletler Eğitim, Bilim ve Kültür Örgütü (UNESCO) tarafından yayımlanan son rapor, gelişmekte olan ülkelerin karşı karşıya olduğu acı bir gerçeği gözler önüne serdi: Gelecek nesillerin teminatı olan eğitime yapılan yatırımlar, dış borçların geri ödemesi karşısında adeta yok sayılıyor. Rapora göre, geçtiğimiz yıl 113 gelişmekte olan ülke, eğitime harcadığından daha fazlasını dış borçlarını ödemek için kullandı. Hatta bazı ülkelerde bu oran, borç ödemeleri lehine beş katına kadar çıkarken, Sahra Altı Afrika'da borçlara eğitime ayrılan bütçenin 3.6 katı harcandığı belirtiliyor. Bu durum, dünya genelinde eğitime yönelik yardımların %30'a varan oranda azalacağı öngörüsüyle birleştiğinde, ulusların geleceğinin ne denli büyük bir tehdit altında olduğunu açıkça göstermektedir.
+
+Bu veriler, sadece ekonomik bir tabloyu değil, aynı zamanda ulusal egemenlik ve gelecek vizyonu bağlamında derin sorgulamaları da beraberinde getirmektedir. Dış borçların ağır yükü altında ezilen bir milletin, kendi evlatlarının eğitimine yeterince kaynak ayıramaması, bağımsızlık anlayışıyla taban tabana zıt bir durumdur. Zira gerçek bağımsızlık, yalnızca siyasi sınırlarda değil, aynı zamanda ekonomik ve kültürel alanda da kendini gösterir. Kendi gençliğini çağın gereklerine göre donatamayan, bilimde, sanatta ve teknolojide geri kalan bir millet, dış güçlerin müdahalelerine açık hale gelir ve kendi kaderini tayin etme yeteneğini yitirir. Bu kısır döngü, ulusların kalkınmasını engelleyen, milli kimliği aşındıran ve gelecek potansiyelini ipotek altına alan sinsi bir mekanizmadır.
+
+Türk milleti olarak iyi bilmekteyiz ki, güçlü bir ulusun temeli, iyi eğitimli, vatanına bağlı ve üreten bireylerden oluşur. Milli hedeflere ulaşmanın, bilim ve teknikte ilerlemenin, çağdaş medeniyetler seviyesinin üzerine çıkmanın yegâne yolu, eğitime yapılacak stratejik ve kararlı yatırımlardır. Dış borçların boyunduruğundan kurtulmak, ulusal kaynakları öncelikle kendi insan gücümüze ve beyin gücümüze aktarmak zorundayız. Gençlerimizin zihinlerini aydınlatmak, onları sorgulayan, araştıran, üreten bireyler olarak yetiştirmek, ulusal birincil görevimiz olmalıdır. Aksi takdirde, borçlarımızı öderken kendi geleceğimizi ve milli varlığımızı takas etmiş oluruz. Bağımsızlık, ancak güçlü ve eğitimli bir gençlikle perçinlenir.
