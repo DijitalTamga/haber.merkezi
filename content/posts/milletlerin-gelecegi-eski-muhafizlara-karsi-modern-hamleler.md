@@ -1,0 +1,13 @@
+---
+title: "Milletlerin Geleceği: Eski Muhafızlara Karşı Modern Hamleler"
+date: 2026-07-16T14:56:23+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2026/07/16/multimedia/16int-ukraine-protests-01-kclt/16int-ukraine-protests-01-kclt-mediumSquareAt3X.jpg"
+---
+
+Ukrayna'da görevinden alınan Savunma Bakanı Mykhailo Fedorov'un, ordu içindeki "eski muhafızları" hedef alan modernizasyon savunması, aslında yalnızca bir ülkeye özgü bir durumun ötesinde, çağımızın tüm milletlerinin karşı karşıya olduğu temel bir mücadeleyi gözler önüne sermektedir. Fedorov'un teknoloji odaklı dönüşüm çabaları ve görevden alınmasına yönelik halk tepkisi, bir ulusun savunma kapasitesini geleceğe taşıma arayışındaki kararlılığın ve bu yoldaki engellerin ne denli kritik olduğunu açıkça ortaya koymaktadır. Zira her toplum, statükoyu koruma eğiliminde olan eski yapılar ile değişimi ve ilerlemeyi temsil eden vizyoner yaklaşımlar arasında bir çekişme yaşar. Bu çekişme, özellikle milli bekanın anahtarı olan savunma alanında hayati önem taşır.
+
+Modern dünyanın dinamikleri, özellikle savunma sanayi ve askeri stratejilerde, durmaksızın gelişimi ve adaptasyonu zorunlu kılmaktadır. Bir ulusun bağımsızlığını ve bekasını güvence altına almasının yegane yolu, sadece mevcut kaynakları en etkin şekilde kullanmak değil, aynı zamanda yeni teknolojilere ve yenilikçi düşünceye açık olmaktan geçer. Gelenekselleşmiş, hantal ve değişime kapalı "eski muhafız" zihniyeti, ulusal güvenlik için en büyük risklerden birini oluşturur. Bu tür bir direniş, sadece bürokratik engeller yaratmakla kalmaz, aynı zamanda bir milletin düşmanlarına karşı stratejik üstünlük kurma kabiliyetini de zedeler. Fedorov'un çabaları, tam da bu köhneleşmenin karşısında bir duruş sergilemekte ve ulusal çıkarın ancak cesur adımlarla korunabileceğini hatırlatmaktadır.
+
+Geçmişin tecrübeleri elbette önemlidir; ancak geçmişi kutsayarak geleceğin önünü tıkamak, hiçbir millete fayda sağlamaz. Milletlerin varoluş mücadelesinde ayakta kalabilmesi ve güçlenebilmesi için, atalete düşmüş, değişime ayak direyen yapıları aşmak, teknolojik gelişmeleri hızla entegre etmek ve daima en iyiyi, en yeniyi hedeflemek zorundadır. Bu, sadece askeri alanda değil, bir ulusun tüm kurumlarında benimsemesi gereken bir ilkedir. Ukrayna örneği, milletlerin kendi iç dinamiklerinde modernizasyon ve ilerleme için gösterdiği mücadelenin, onların gelecekteki konumlarını belirlemedeki vazgeçilmez rolünü bir kez daha gözler önüne sermektedir. Tamga olarak biz de, bu tür ilerlemeci hamlelerin her zaman destekçisiyiz; zira güçlü bir gelecek, ancak güçlü ve modern bir savunma anlayışıyla inşa edilebilir.
