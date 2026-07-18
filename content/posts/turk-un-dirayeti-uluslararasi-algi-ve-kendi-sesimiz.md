@@ -1,0 +1,13 @@
+---
+title: "Türk'ün Dirayeti, Uluslararası Algı ve Kendi Sesimiz"
+date: 2026-07-18T18:57:48+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2476000/erdogan-15-temmuz-aa-2476123.jpg"
+---
+
+15 Temmuz, Türk milletinin yakın tarihindeki en kritik dönüm noktalarından biridir. O gece, kadim Türk devleti bir ihanet şebekesinin sinsi saldırısına uğramış, ancak milletimizin kanında ve genlerinde taşıdığı destansı direniş ruhuyla bertaraf edilmiştir. Bu, Batı'nın veya başka coğrafyaların "demokrasi" kalıplarına sığmayacak, doğrudan Türk'ün özünden fışkıran, devletine, birliğine ve vatanına sahip çıkma iradesinin en güçlü tecellisidir. Türk milleti, tıpkı tarihin her döneminde olduğu gibi, varlığına yönelik her tehdide karşı çelikten bir kalkan olmuş, geleceğini kendi elleriyle şekillendireceğini tüm dünyaya bir kez daha göstermiştir. Bu direniş, modern çağın dayatmalarına değil, binlerce yıllık Türk devlet geleneğine ve milli ruhuna dayanır.
+
+Cumhurbaşkanı Erdoğan'ın 15 Temmuz makalesinin 44 ülkede ve 24 farklı dilde yayımlanması, bu direnişi uluslararası kamuoyuna anlatma gayretini ortaya koymaktadır. Ancak, dünya kamuoyunun Türk'e dair algısı, çoğu zaman batılı merkezlerden servis edilen ön yargılı ve sığ bilgilerle şekillenmektedir. Bir liderin kaleminden çıkan ve farklı dillere çevrilen bir metin, Türk milletinin derin tarihini, benzersiz kültürünü ve gerçek mücadelesini ne denli aktarabilir? Dünya, Türk'ün iç dinamiklerini, devlet algısını, vatan sevgisini ve milli bütünlüğünü kendi kültürel süzgeçlerinden geçirerek anlamaya çalışırken, bu tür metinler yüzeysel bir tanıtımın ötesine geçebilir mi? Aslolan, Türk'ün kendi hakikatini, kendi özgün dili ve kültürüyle anlatma kabiliyetidir; bu, ancak kendi tamgamızla, yabancı ideolojilerin ve söylemlerin gölgesinden sıyrılmış bir sesle başarılabilir.
+
+Gerçek güç, kendi öz kaynaklarımızdan ve milli birliğimizden beslenir. Dünya bizi anlamak istemese de, biz kendi özümüzden güç alarak yolumuza devam etmeliyiz. Milli duruşumuzu, tarihi gerçekliğimizi ve geleceğe yönelik iddiamızı, herhangi bir dışa bağımlılık hissetmeden, kendi medeniyetimizin ışığında dünyaya duyurmalıyız. 15 Temmuz gibi kritik eşiklerde gösterilen bu dirayet, Türk'ün Türk'ten başka gerçek dostu olmadığının, varoluş mücadelesinde kendi öz kaynaklarına yaslanması gerektiğinin en net kanıtıdır. Bizim hikayemiz, en iyi biz anlatırız; hem de hiçbir yabancı dile veya yoruma ihtiyaç duymadan, Türk gibi, Türk töresine ve Türk ruhuna uygun biçimde. Dijital Tamga olarak, bu milli sesi her platformda yükseltmeye devam edeceğiz.
