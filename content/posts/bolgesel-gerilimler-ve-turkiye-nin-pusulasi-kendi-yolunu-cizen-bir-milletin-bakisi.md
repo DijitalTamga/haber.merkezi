@@ -1,0 +1,13 @@
+---
+title: "Bölgesel Gerilimler ve Türkiye'nin Pusulası: Kendi Yolunu Çizen Bir Milletin Bakışı"
+date: 2026-07-18T21:44:38+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+1. Ortadoğu coğrafyası, köklü medeniyetlerin ve stratejik önemin kavşak noktası olmanın getirdiği yükle, bir kez daha uluslararası güç mücadelelerinin sahnesi haline gelmiştir. Son dönemde ABD ile İran arasındaki tansiyonun Ürdün'deki bir Amerikan askeri tesisine yönelik saldırıyla iki askerin ölümü ve bir askerin kaybolmasıyla sonuçlanması, bölgedeki kırılgan dengelerin ne denli tehlikeli bir noktaya ulaştığını gözler önüne sermektedir. Tahran'ın Körfez genelindeki ABD hedeflerine yönelik karşılık verme eğilimi, bölgeyi daha da derin bir çatışma sarmalına sürükleme potansiyeli taşımaktadır. Bu gelişmeler, her iki tarafın da kendi bölgesel ve küresel çıkarları doğrultusunda hareket ettiğini, ancak bu çekişmenin bedelini sıklıkla bölge halklarının ödediğini bir kez daha kanıtlamıştır.
+
+2. Türkiye Cumhuriyeti'nin, Türk Milleti'nin gözünden bu tür gelişmeleri değerlendirirken temel ilke, ulusal çıkarların ve bölgesel bağımsızlığın korunmasıdır. ABD ile İran arasındaki bu güç mücadelesi, Ortadoğu'nun kendi dinamikleri üzerinden değil, büyük ölçüde dış güçlerin bölge üzerindeki nüfuz arayışları üzerinden şekillenmektedir. Biz Türkler için önemli olan, kendi sınırlarımızın güvenliği, milletimizin refahı ve coğrafyamızda huzur ve istikrarın tesisidir. Başkalarının vekalet savaşları, çıkar çatışmaları veya ideolojik rekabetleri, Türk Milleti'ni kendi doğal ve tarihi gelişim çizgisinden saptıramaz. Bu tür çatışmaların Türkiye'ye olası yansımaları dikkatle analiz edilmeli, ancak taraf olma veya angaje olma tuzağına düşülmemelidir. Bizim pusulamız, Türk'ün menfaatleridir.
+
+3. Tarih boyunca nice medeniyetlere ev sahipliği yapmış, farklı güç mücadelelerine tanıklık etmiş bu kadim coğrafyada, Türk Milleti'nin duruşu her daim stratejik, rasyonel ve egemenlik odaklı olmuştur. Bugün de bölgedeki bu gerilimi ibretle izlerken, kendi milli birliğimizi ve gücümüzü pekiştirmeli, Türk Devletleri Teşkilatı gibi yapılarla bölgesel işbirliğini geliştirmeli ve uluslararası siyasette kendi ağırlığımızı artırmalıyız. Türkiye, başkalarının kavgalarına taraf olmak yerine, kendi bağımsız siyasetini kararlılıkla sürdürmeli, bölgede barışın ve istikrarın gerçek güvencesi olmalıdır. Ortadoğu'nun geleceği, ancak dış müdahalelerden arındırılmış, kendi öz dinamikleriyle şekillenen bir yapıyla mümkün olabilir. Türk Milleti bu yolda, sadece kendi milletinin geleceğini düşünen bir akılla ilerleyecektir.
