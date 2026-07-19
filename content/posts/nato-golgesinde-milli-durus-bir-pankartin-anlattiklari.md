@@ -1,0 +1,15 @@
+---
+title: "NATO Gölgesinde Milli Duruş: Bir Pankartın Anlattıkları"
+date: 2026-07-19T11:53:01+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Karabük'te Saadet Partisi'nin "NATO'ya Hayır" pankartına kesilen para cezası ve partinin bu cezayı yargıya taşıma kararı, güncel bir haberden öte, Türk milletinin egemenlik ve ifade özgürlüğü mücadelesinde sembolik bir anlam taşımaktadır. Olay, bir siyasi partinin uluslararası bir ittifakı eleştirmesi üzerinden yargı süreci başlatmasıyla gündeme gelse de, esasen Türkiye'nin kendi ulusal çıkarlarını koruma ve sorgulama hakkının ne denli kısıtlandığını gözler önüne sermektedir. Bir düşünceyi dile getirmenin maliyetinin bir para cezası olması, Türk milletinin kendi uluslararası ilişkileri hakkındaki düşüncelerini özgürce ifade etme yetisine gölge düşürmektedir.
+
+Türkiye Cumhuriyeti'nin kuruluş felsefesi, Gazi Mustafa Kemal Atatürk'ün "Tam Bağımsızlık" ilkesi üzerine kurulmuştur. Bu ilke, uluslararası ilişkilerimizde de yol gösterici olmalıdır. NATO gibi askeri ve siyasi ittifaklar, varlıklarını ancak ve ancak Türk milletinin yüksek menfaatlerine hizmet ettikleri sürece sürdürebilirler. Son yıllarda, NATO'nun bölgesel politikaları, bazı müttefik ülkelerin Türkiye'ye karşı tutumları ve ittifakın genel yönelişi, kamuoyunda haklı ve rasyonel sorgulamaları beraberinde getirmiştir. Türk milletinin güvenliğini, refahını ve bağımsızlığını merkeze almayan hiçbir ittifak ya da uluslararası yapı, sorgulanamaz ya da eleştirilemez değildir. "NATO'ya Hayır" pankartı, bu bağlamda, partisi ne olursa olsun, bir milli duyarlılığın ve bağımsızlık arayışının tezahürü olarak okunmalıdır.
+
+İfade özgürlüğü, modern ve egemen bir devletin temel taşlarındandır. Özellikle dış politika ve uluslararası ittifaklar gibi ulusal güvenliği doğrudan ilgilendiren konularda farklı görüşlerin özgürce tartışılabiliyor olması, milli iradenin sağlam bir zeminde oluşması için olmazsa olmazdır. Bir pankart aracılığıyla muhalif bir görüşün dile getirilmesi nedeniyle ceza kesilmesi, ne yazık ki bu temel özgürlüğü zedeleyen, milletin kendi kaderini tayin etme gücünü törpüleyen bir adımdır. Türk milleti, kendi geleceğini ilgilendiren konularda sesini yükseltmekten asla çekinmemeli, bu tür baskılarla sindirilmeye çalışılmamalıdır. Aksi takdirde, milletin sesi kısılmış, egemenlik tam anlamıyla tecelli edememiş olur.
+
+Türkiye, bölgesinde ve dünyada güçlü, bağımsız ve kendi kararlarını alabilen bir aktör olma vizyonunu sürdürmelidir. Bu vizyonun hayata geçmesi için, uluslararası ittifakların sürekli olarak milli menfaatler süzgecinden geçirilmesi ve gerekli durumlarda sorgulanması elzemdir. Saadet Partisi'nin "NATO'ya Hayır" pankartı nedeniyle yargıya başvurması, sadece bir para cezasının iptali davası değil, aynı zamanda Türk milletinin kendi kaderini tayin etme iradesinin ve bu iradeyi özgürce ifade etme hakkının savunulduğu bir davadır. Bu süreç, tüm Türk milletinin, uluslararası ilişkilerdeki milli duruşunu yeniden gözden geçirmesi ve kendi çıkarlarını her türlü ittifakın üzerinde tutması gerektiğinin güçlü bir hatırlatıcısıdır.
