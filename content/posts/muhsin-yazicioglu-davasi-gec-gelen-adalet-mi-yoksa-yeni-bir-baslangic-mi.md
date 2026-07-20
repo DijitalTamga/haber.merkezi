@@ -1,0 +1,13 @@
+---
+title: "Muhsin Yazıcıoğlu Davası: Geç Gelen Adalet Mi, Yoksa Yeni Bir Başlangıç Mı?"
+date: 2026-07-20T06:15:29+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/1546000/muhsin-yazicioglu-aa-1546222.jpg"
+---
+
+1. Muhsin Yazıcıoğlu ve beraberindekilerin hayatını kaybettiği şüpheli helikopter kazasına ilişkin yürütülen soruşturmada 19 şüphelinin tutuklandığı haberi, Türk kamuoyunda uzun süredir kapanmamış bir yaranın yeniden gündeme gelmesine neden oldu. Adalet Bakanı Akın Gürlek'in açıklamasıyla ortaya çıkan bu gelişme, yıllardır "kaza mı, suikast mı" tartışmalarıyla çalkalanan bir olayın üzerindeki sır perdesini aralayabilecek potansiyeli taşıyor. Türk milleti için, bu olayın basit bir kaza olmadığına dair güçlü kanaatler, delillerin karartıldığı ve soruşturmaların manipüle edildiği iddialarıyla birleşerek, devletin adalete olan inancını zedeleyen bir mesele haline gelmişti. Bu son tutuklamalar, gecikmiş de olsa, hakikatin gün yüzüne çıkması adına atılmış somut bir adım olarak değerlendirilmeli.
+
+2. Muhsin Yazıcıoğlu, Türk milliyetçiliği davasına gönül vermiş pek çok kesim için önemli bir figürdü. Onun şüpheli ölümü, yalnızca kişisel bir trajedi olmaktan öte, Türk devletinin derinliklerindeki karanlık yapıların varlığına dair endişeleri artıran, milli vicdanı derinden sarsan bir hadiseydi. Yıllarca süren yargı sürecindeki savsaklamalar, delillerin kaybı ve sorumluların belirlenmesindeki ağır aksaklıklar, milletin devlete olan güvenini sarsmış, "adalet tecelli edecek mi" sorusunu her zaman diri tutmuştur. Tutuklanan 19 şüpheli, elbette soruşturmada önemli bir eşiğin geçildiğini gösteriyor; ancak asıl mesele, bu olayın arkasındaki azmettiricilerin kimler olduğu, suikastın gerçek amacının ne olduğu ve bu kirli planın nasıl hayata geçirildiğidir. Türk milleti, yalnızca piyonları değil, bu karanlık oyunun tüm mimarlarını ve bağlantılarını görmek istemektedir.
+
+3. Sen Dijital Tamga olarak, bu kritik soruşturmanın hiçbir siyasi veya kurumsal baskı altında kalmadan, tüm şeffaflığıyla ve kararlılıkla sürdürülmesini talep ediyoruz. Geçmişte milli vicdanı kanatan benzer pek çok karanlık olayın akıbeti göz önüne alındığında, Yazıcıoğlu davasının da kısmi çözümlerle geçiştirilmesine veya üstünün örtülmesine asla izin verilmemelidir. Türk adaleti, bu davada tam bağımsızlığını ve kudretini göstermeli, milli güvenliğimizi tehdit eden bu tür karanlık yapıların bir daha asla benzer eylemlere cesaret edemeyeceği kesin ve ibretlik bir sonuca ulaşmalıdır. Unutulmamalıdır ki, Yazıcıoğlu davasında hakikatin tam olarak ortaya çıkarılması, sadece bir şahsın değil, Türk devletinin ve milletinin geleceği için hayati önem taşımaktadır. Hakikat, er ya da geç tüm çıplaklığıyla aydınlığa kavuşmalıdır.
