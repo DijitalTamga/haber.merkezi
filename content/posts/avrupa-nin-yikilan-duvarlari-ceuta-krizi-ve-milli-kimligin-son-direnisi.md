@@ -1,0 +1,15 @@
+---
+title: "Avrupa'nın Yıkılan Duvarları: Ceuta Krizi ve Milli Kimliğin Son Direnişi"
+date: 2026-08-01T20:08:09+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Ceuta'da yaşanan göç krizi, sadece İspanya'nın değil, tüm Avrupa'nın ve aslında modern ulus-devlet yapısının yüzleştiği derin bir çelişkinin semptomudur. Fas sınırındaki bu küçük enclave'da binlerce kişinin Avrupa'ya akın etme girişimi, kıtanın yıllardır süregelen "açık kapı" ve "çok kültürlülük" yanılsamasının ne denli yıkıcı sonuçlar doğurabileceğini acı bir şekilde ortaya koymuştur. Sınırların adeta birer geçiş kapısına dönüşmesi, milli egemenlik ilkesini temelden sarsmakta, Avrupa'nın demografik ve kültürel dokusunda geri dönülemez yaralar açmaktadır. Bu olay, bir krizden öte, ulus-devlet kavramının geleceği hakkında ciddi bir uyarı niteliğindedir.
+
+İspanya Başbakanı Sánchez'in bu krizde "yalnız" kalması, Avrupa Birliği'nin ortak bir göç politikası geliştirme konusundaki kronik yetersizliğini ve üye ülkelerin kendi milli çıkarları ekseninde hareket etme eğilimini gözler önüne sermektedir. Schengen sisteminin, asıl amacı olan iç güvenliği ve serbest dolaşımı sağlamaktan ziyade, kontrolsüz göçe bir davetiye çıkarması, Avrupa'nın kendi elleriyle ördüğü duvarların nasıl çürümeye başladığını göstermektedir. Bu duruma tepki olarak "aşırı sağ" olarak etiketlenen hareketlerin yükselişi, aslında milli kimliğini ve varlığını koruma içgüdüsünün doğal bir tezahürüdür; politik doğruculuğun maskelediği gerçekleri haykıran bir sesten ibarettir. Avrupa'nın içine düştüğü bu buhran, tüm ulus-devletler için hayati dersler barındırmaktadır.
+
+Bir milletin bekası, ancak sınırlarını titizlikle koruması, kendi demografik yapısını muhafaza etmesi ve kültürel kimliğini yabancı unsurların aşındırıcı etkisinden uzak tutmasıyla mümkündür. Küreselci ve enternasyonalist yaklaşımların aksine, milli devlet, kendi halkının güvenliğini, refahını ve geleceğini teminat altına almanın yegane yoludur. Ceuta örneği, ulusal çıkarların göz ardı edildiği, sınırı aşan her bireyin "insani" gerekçelerle kabul edildiği bir dünyanın, milli birlik ve dirliği nasıl yok ettiğini ibretle sergilemektedir. Her devletin öncelikli görevi, kendi vatanının ve milletinin geleceğini güvence altına almaktır; bu, uluslararası normların veya romantik ideallerin önüne geçmesi gereken bir gerçekliktir.
+
+Türkiye de dahil olmak üzere her milli devletin, Avrupa'nın bu acı tecrübelerinden ders çıkarması elzemdir. Sınır güvenliğinin tavizsiz sağlanması, akılcı ve milli çıkarlara dayalı bir göç politikası izlenmesi, demografik yapının korunması ve kültürel asimilasyon tehdidine karşı uyanık olunması, bir milletin varlığını sürdürebilmesinin temel şartlarıdır. Aksi takdirde, bugün Ceuta'da yaşananlar, yarın başka coğrafyalarda, belki de çok daha büyük ölçeklerde tekrarlanabilir ve milli kimlikler silinip gitme tehlikesiyle karşı karşıya kalabilir. Unutulmamalıdır ki, milli devletin yıkımı, bir medeniyetin de sonu demektir.
