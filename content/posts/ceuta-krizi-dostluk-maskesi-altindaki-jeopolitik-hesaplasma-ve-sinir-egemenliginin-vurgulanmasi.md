@@ -1,0 +1,13 @@
+---
+title: "Ceuta Krizi: 'Dostluk' Maskesi Altındaki Jeopolitik Hesaplaşma ve Sınır Egemenliğinin Vurgulanması"
+date: 2026-08-02T16:01:33+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/08/01/0/0/6000/3000/644/322/60/0/20f1cff_ftp-1-kcps0strbh5h-2026-08-01t222402z-1531319346-rc2vpma8ilfl-rtrmadp-3-migration-europe-spain-ceuta.JPG"
+---
+
+İspanya'nın Kuzey Afrika'daki özerk kenti Ceuta'ya yaşanan son göçmen akını, bölgede yıllardır süregelen gerilimin ve devletlerarası stratejik manevraların yeni bir perdesini araladı. 1990'lı yıllarda imzalanan "dostluk, iyi komşuluk ve işbirliği" antlaşmalarına rağmen, İspanya ve Fas arasındaki ilişkiler adeta bir gelgit yaşamakta. Bu kriz, sözde yakınlaşmaların ve diplomatik söylemlerin ardında yatan "arka plan düşünceleri" yani ulusal çıkarların, hesaplaşmaların ve baskı araçlarının nasıl ustaca kullanıldığını bir kez daha gözler önüne serdi. İnsan hareketliliğinin, uluslararası ilişkilerde bir koz olarak değerlendirilmesi, siyasetin soğuk yüzünü acı bir şekilde ortaya koymaktadır.
+
+Bu tür olaylar, yalnızca bölgesel bir mesele olmanın ötesinde, ulus-devletlerin varoluşsal temelleri olan sınır güvenliği ve milli egemenlik kavramlarını doğrudan hedef almaktadır. Düzensiz göç akınlarının organize bir şekilde yönlendirilmesi, insan onurunu hiçe sayan ve devletleri uluslararası baskı altına almayı amaçlayan kabul edilemez bir stratejidir. Her ulus, kendi toprak bütünlüğünü, demografik yapısını ve kültürel kimliğini koruma hakkına sahiptir. Sınırların geçirgen hale gelmesi, milli kimliklerin erozyonuna, toplumsal huzurun bozulmasına ve nihayetinde devletin kendi vatandaşlarına karşı sorumluluğunu yerine getirmekte zorlanmasına yol açar. Bu tür krizler, dış güçlerin iç işlerimize müdahalesine açık kapı bırakarak, milli birliğimize ve bütünlüğümüze yönelik tehditleri artırır.
+
+Ceuta'da yaşananlar, dünya genelindeki ulus-devletlere, özellikle de stratejik konumu itibarıyla sürekli dış baskılara maruz kalan ülkemize önemli dersler sunmaktadır. Sınırlarımız, milli varlığımızın tapusudur ve tavizsiz bir şekilde korunmalıdır. Başkalarının jeopolitik hesaplaşmalarında piyon olarak kullanılan insan kitlelerinin yarattığı krizler, bize kendi milli menfaatlerimizi her şeyin üzerinde tutmamız gerektiğini hatırlatmaktadır. Türkiye olarak, bu türden "arka plan düşünceleri" içeren "dostluk" maskeli oyunlara karşı uyanık olmalı, sınırlarımızı çelikten bir iradeyle savunmalı ve ulus-devlet kimliğimizi daima güçlendirmeliyiz. Zira toprak ve insan unsurlarının milli iradeyle buluştuğu sınırlar, bir ulusun kaderini belirleyen en temel unsurlardır.
