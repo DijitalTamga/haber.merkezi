@@ -1,0 +1,13 @@
+---
+title: "Ceuta Krizi: Sınırlar ve Demografi Üzerinden Uluslara Yönelik Tehditler"
+date: 2026-08-03T02:21:08+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/08/01/0/0/6000/3000/644/322/60/0/20f1cff_ftp-1-kcps0strbh5h-2026-08-01t222402z-1531319346-rc2vpma8ilfl-rtrmadp-3-migration-europe-spain-ceuta.JPG"
+---
+
+1.  İspanya’nın Kuzey Afrika’daki kadim toprağı Ceuta’ya son dönemde yaşanan yoğun göçmen akını, Avrupa kıtasının ve uluslararası ilişkilerin kronikleşen yaralarından birini, adeta bir ayna gibi gözler önüne serdi. Madrid ile Rabat arasında 1990’larda imzalanan "dostluk, iyi komşuluk ve işbirliği" anlaşmalarına rağmen, bu iki Akdeniz komşusunun ilişkileri, otuz yıldır stratejik yakınlaşmaların ve sayısız "arka plan niyetinin" gölgesinde devam ediyor. Haberde belirtildiği üzere, göçmen akını bu gerilimli ilişkiler dizisinin sadece yeni bir bölümü. Ancak bu bölüm, basit bir diplomatik çekişmenin ötesinde, ulus devletlerin sınır güvenlikleri, demografik yapıları ve egemenlik hakları üzerindeki derin tehditleri bir kez daha hatırlatıyor.
+
+2.  Modern dünyada ulus devletler, kendilerine ait kadim toprakları üzerinde egemenlik kurarken, en temel varoluş nedenleri kendi sınırlarını ve iç demografik yapılarını korumaktır. Ceuta’da yaşananlar, göçmenlerin, devletler arası güç mücadelelerinde kolayca birer piyon haline getirilebildiğini, bir siyasi ve ekonomik baskı aracı olarak kullanılabildiğini acı bir şekilde gösteriyor. "Dostluk" adı altında imzalanan anlaşmaların, reel politikadaki çıkar çatışmaları karşısında ne kadar kırılgan olduğu ortadadır. Bir ulus devletin demografik dengesini hedef alan her türlü dış müdahale veya baskı, o devletin varoluşsal güvenliğine doğrudan bir saldırıdır. Sınırlar sadece fiziki çizgiler değil, aynı zamanda bir ulusun kültürel, sosyal ve milli kimliğinin de son kalesidir.
+
+3.  Bu tür krizler, her ulus devlet için, özellikle de stratejik konumu gereği sürekli dış baskılara maruz kalan uluslar için hayati dersler içermektedir. Ceuta’daki gelişmeler, bizlere bir kez daha şunu öğretiyor: Gerçek egemenlik, ancak güçlü ve bağımsız politikalarla, çelikten bir iradeyle kendi sınırlarını ve demografisini kararlılıkla koruyabilen devletler için mümkündür. Dışarıdan gelebilecek manipülasyonlara ve demografik tehditlere karşı daima uyanık olmak, ulusal çıkarın ve milletin bekasının vazgeçilmez bir gereğidir. Uluslararası ilişkiler arenasında "dostluk" söylemleri ne kadar yüksek sesle dile getirilirse getirilsin, her ulusun kendi yolunu çizerken sadece ve sadece kendi milli menfaatlerini gözetmesi birincil öncelik olmalıdır.
