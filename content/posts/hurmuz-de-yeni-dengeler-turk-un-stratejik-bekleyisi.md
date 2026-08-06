@@ -1,0 +1,13 @@
+---
+title: "Hürmüz'de Yeni Dengeler, Türk'ün Stratejik Bekleyişi"
+date: 2026-08-06T02:04:31+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Küresel ticaretin can damarlarından biri olan Hürmüz Boğazı ve çevresi, bir kez daha bölgedeki güç mücadelelerinin ve vekalet savaşlarının sahnesi haline gelmiştir. İran ile Umman arasında denizcilik yolları üzerine varılan mutabakat, boğazın kontrolü ve bölgedeki nüfuz mücadelesi açısından önemli bir adım olarak okunmalıdır. Aynı zamanda, Yemen'deki Husilerin Suudi tankerlerine yönelik saldırıları ve İsrail'in Lübnan'ı hedef alması, bu stratejik öneme sahip coğrafyanın ne denli kırılgan ve çatışmalara açık olduğunu bir kez daha gözler önüne sermektedir. Bu gelişmeler, sadece bölge ülkelerini değil, deniz ticareti ve enerji güvenliği üzerinden tüm dünyayı, özellikle de coğrafi konumu itibarıyla bu dengelerden doğrudan etkilenen Türk milletini yakından ilgilendirmektedir.
+
+Hürmüz Boğazı'ndaki bu yeni diplomatik ve askeri hareketlilik, bölgedeki aktörlerin kendi jeopolitik çıkarlarını sağlamlaştırma çabasının bir yansımasıdır. İran'ın Umman ile yaptığı anlaşma, boğaz üzerindeki etkinliğini artırma gayretini gösterirken, Husilerin saldırıları ise vekalet savaşlarının küresel ticareti ve enerji arz güvenliğini nasıl tehdit ettiğini ortaya koymaktadır. Bu eylemler, uluslararası denizcilik kurallarını hiçe sayan ve bölgeyi daha da istikrarsızlaştıran sorumsuz yaklaşımların bir göstergesidir. İsrail'in Lübnan'a yönelik müdahalesi ise zaten gerilimli olan coğrafyada yeni bir cephe açmakta, bölgesel çatışma riskini daha da artırmaktadır. Bu tabloda, bölge dışı güçlerin de müdahaleleriyle karmaşıklaşan bir denklemin içinde olduğumuz aşikârdır.
+
+Türk milleti olarak, bu güç mücadelelerini ve dengesizlikleri dikkatle takip etmek, kendi ulusal menfaatlerimizi öncelikli kılmak zorundayız. Hürmüz gibi kritik deniz geçitlerindeki güvenlik ve serbest dolaşım, Türkiye'nin enerji tedariki, dış ticareti ve genel ekonomik istikrarı için hayati öneme sahiptir. Böylesine çalkantılı bir coğrafyada, duygusal ya da ideolojik saplantılardan arınmış, tamamen Türk'ün çıkarına odaklanan rasyonel bir dış politika izlemek mecburiyetindeyiz. Kendi milli gücümüzü artırarak, bölgedeki dengeleri doğru okuyarak ve uluslararası hukuktan yana sağlam bir duruş sergileyerek, bu karmaşık jeopolitik satrançta Türk milletinin haklarını ve geleceğini güvence altına almalıyız. Türkiye, başkalarının vekalet savaşlarına çekilmek yerine, kendi stratejik hedefleri doğrultusunda hareket etmeli, bölgedeki her gelişmeye karşı uyanık ve güçlü olmalıdır.
