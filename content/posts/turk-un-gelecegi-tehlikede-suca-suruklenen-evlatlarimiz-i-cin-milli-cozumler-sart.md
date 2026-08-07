@@ -1,0 +1,13 @@
+---
+title: "Türk'ün Geleceği Tehlikede: Suça Sürüklenen Evlatlarımız İçin Milli Çözümler Şart"
+date: 2026-08-07T22:29:29+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+1. Türkiye Büyük Millet Meclisi'nde suça sürüklenen çocuklarımıza ilişkin düzenlemelerin görüşülmesi ve altı maddesinin kabul edilmesi, Türk milletinin en hassas konularından birini yeniden gündeme getirdi. Bir milletin geleceği, evlatlarının omuzlarında yükselir. Genç nesillerimizin doğru yolda, milli şuurla, çalışkan ve ahlaklı bireyler olarak yetişmesi, Türk ulusunun varlığını ve gücünü sürdürmesi açısından hayati öneme sahiptir. Bu bağlamda, suça sürüklenen her bir çocuğumuz, sadece bireysel bir kader değil, aynı zamanda Türk toplumsal yapısında ve milli geleceğimizde açılan derin bir yara olarak görülmelidir. Bu durum, devletin ve milletin ortak sorumluluğunda, acilen ve kökten çözülmesi gereken bir meseledir.
+
+2. Kabul edilen düzenlemeler kapsamında çocuk hükümlülerin cezaevi ve özellikle eğitimevlerine ayrılma süreçlerinin yeniden yapılandırılması ile aile hukukundan doğan yükümlülüklerin ihlaline yönelik cezaların artırılması olumlu adımlar olarak değerlendirilebilir. Ancak mesele yalnızca cezaları artırmak ya da fiziki ayrıştırmayı düzenlemekten ibaret değildir. Asıl odak noktası, bu evlatlarımızın milli kimliklerini, Türk törelerini ve çalışma disiplinini yeniden kazanacakları, üreten, topluma faydalı bireyler olarak yetişecekleri bir rehabilitasyon süreci olmalıdır. Eğitimevleri, sadece bir ıslah kurumu değil, aynı zamanda milli bir eğitim yuvası, Türk gençliğine yeniden yön veren bir ocak vazifesi görmelidir. Burada verilecek eğitim, onları sadece yasalara uygun davranmaya değil, aynı zamanda Türk milletine layık, vatansever ve çalışkan birer fert olmaya teşvik etmelidir.
+
+3. Suça sürüklenen çocuk gerçeği, bize sadece yargısal düzenlemelerin yeterli olmadığını, topyekün bir milli seferberliğin gerektiğini göstermektedir. Aile kurumunun milli değerler temelinde yeniden güçlendirilmesi, okullarımızda milli şuur ve kimlik eğitiminin pekiştirilmesi, kültürel erozyonun önüne geçilmesi ve gençlerimize sağlıklı rol modeller sunulması, bu yaranın kapanması için elzemdir. Türk çocuklarını yoldan çıkaran her türlü etkenle kararlılıkla mücadele edilmeli, onlara sadece hukukun değil, aynı zamanda Türk milletinin şefkatli ancak disiplinli eli uzanmalıdır. Unutulmamalıdır ki, bugün suça itilen her bir evladımız, yarın Türk'ün geleceğinden çalınan bir umut demektir. Bu nedenle, devletimiz tüm kurumlarıyla, sivil toplum örgütlerimizle ve her Türk ferdiyle bu milli sorunun üstesinden gelmek zorundadır.
