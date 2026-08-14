@@ -1,0 +1,6 @@
+feedparser
+tweepy
+requests
+google-genai
+Pillow
+pytz
