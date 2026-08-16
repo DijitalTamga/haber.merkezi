@@ -1,0 +1,13 @@
+---
+title: "İran'ın Yeni Hamlesi: Türk Milleti Yabancı Kavgalara Alet Olmayacak!"
+date: 2026-08-16T17:10:21+03:00
+draft: false
+cover:
+    image: "https://image.dunya.com/rcman/Cw1280h720q95gc/storage/files/images/2026/08/16/rr1-pxwa_cover.jpg"
+---
+
+İran Ordusu'nun geçtiğimiz günlerde yaptığı açıklama, bölgedeki gerilimi tehlikeli bir boyuta taşıdığını bir kez daha gözler önüne serdi. ABD askerlerini etkisiz hale getiren veya yakalayan kişilere 30 bin dolar, hatta bu eylemi bir kadının gerçekleştirmesi halinde iki katı ödül verileceği duyuruldu. Bu tür bir açıklama, uluslararası hukuk ve bölgesel barış adına ciddi endişeler yaratmaktadır. Ortadoğu coğrafyası zaten sayısız iç ve dış güç mücadelesinin sahnesi durumundayken, bir devletin doğrudan diğer bir ülkenin askerlerine karşı şiddeti teşvik etmesi, çatışma ortamını derinleştirmekten başka bir işe yaramayacaktır. Bu çağrı, bölgenin daha da şiddet sarmalına sürüklenmesi riskini beraberinde getirmektedir.
+
+Bu tür provokatif adımlar, sadece hedef alınan ülkeyi değil, tüm bölgeyi ve dolayısıyla Türk Devleti'ni de yakından ilgilendirmektedir. Türk milleti, tarih boyunca kendi kaderini kendi çizen, bölgesinde denge unsuru olmuş, bağımsızlığını ve egemenliğini titizlikle korumuş büyük bir millettir. Ne yazık ki, içinde bulunduğumuz coğrafya, yüzyıllardır dış güçlerin ve çıkar çatışmalarının arenası haline getirilmek istenmiştir. İran'ın bu son hamlesi, zaten kırılgan olan bölgesel dengeleri daha da bozarak, Türk'ün güvenliği ve refahı üzerinde olumsuz etkilere yol açabilir. Bizim için önemli olan, bu kirli savaşların, vekalet kavgalarının ve yabancıların bölgedeki güç mücadelesinin bir parçası olmamak, ulusal çıkarlarımızı her şeyin üzerinde tutmaktır. Türk Devleti, Ortadoğu'daki hiçbir maceranın piyonu olmayacak, kendi yolunu kendi çizecek dirayete ve güce sahiptir.
+
+Türk milleti olarak, bu tehlikeli gelişmeleri ibretle izlemeli ve devletimizin bekası için her zamankinden daha dikkatli olmalıyız. Bölgedeki her hamle, en nihayetinde bizim sınırlarımızı, ekonomimizi ve toplumsal huzurumuzu doğrudan etkileme potansiyeli taşır. Bu nedenle, kuru kuruya taraf olmak yerine, Türk milletinin asli menfaatlerini gözeten, akılcı ve stratejik bir duruş sergilenmelidir. Güçlü bir Türk Devleti, ancak kendi ayakları üzerinde durarak, ne Doğulu ne Batılı güç odaklarının güdümüne girmeden bölgede gerçek bir istikrar adası olabilir. Unutulmamalıdır ki, Türk'ün birliği, dirayeti ve bağımsız iradesi, her türlü dış müdahaleye karşı en sağlam kalkanımızdır. Bizim için yegane yol, büyük Türk milletinin çıkarıdır, refahıdır ve bölgesel egemenliğidir.
