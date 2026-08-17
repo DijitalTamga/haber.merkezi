@@ -1,0 +1,13 @@
+---
+title: "İran-ABD Gerilimi ve Türk'ün Uyanık Bakışı: Coğrafyamızdaki Oyunlar"
+date: 2026-08-17T02:12:39+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2026/08/16/multimedia/16int-iran-mou-01-jzwl/16int-iran-mou-01-jzwl-mediumSquareAt3X-v2.jpg"
+---
+
+Amerika Birleşik Devletleri ve İran arasındaki nükleer müzakerelerin belirlenen son tarihi aşarak ekonomik savaşa dönüşme eğilimi, bölgemizdeki kadim jeopolitik satranç oyunlarının yeni bir perdesini aralamaktadır. Haberin de belirttiği gibi, ABD'nin "eski stratejileri" hatırlatan yeni bir yol izlemesi, aslında coğrafyamızın yabancı güçler tarafından nasıl sürekli bir çıkar çatışması alanı olarak görüldüğünün acı bir göstergesidir. Türkiye'nin ve tüm Türk yurtlarının etrafında dönen bu gerilimler, dış mihrakların kendi gündemleri doğrultusunda bölgedeki dengeleri manipüle etme çabasının son örneğidir. Geçmişte de benzer senaryolarla karşı karşıya kalan milletimiz, her zaman olduğu gibi bu tür dış kaynaklı gerilimlere karşı uyanık ve rasyonel bir duruş sergilemek zorundadır.
+
+Bu tür gerilimlerin artması, bölgesel istikrarı doğrudan tehdit etmekle kalmayıp, Türkiye'nin ulusal güvenliği ve ekonomik refahı üzerinde de potansiyel riskler barındırmaktadır. Ticaret yollarının kesintiye uğraması, enerji güvenliği endişeleri ve olası bir göç dalgası riski, dışarıdan kurgulanan bu gerilimlerin Türkiye'ye yansıyabilecek somut sonuçlarıdır. Türk milleti, kendi jeopolitik önceliklerini ve ulusal menfaatlerini esas alarak bir dış politika yürütmek zorundadır. Bölgedeki her türlü güç mücadelesinin, bölge halklarının değil, küresel aktörlerin çıkarlarına hizmet ettiği gerçeği göz ardı edilmemelidir. Bu nedenle, Türkiye'nin kendi özgün gücünü pekiştirmesi, bölgedeki dengeleri kendi lehine çevirebilecek stratejiler geliştirmesi ve yabancı müdahalelere karşı caydırıcı bir güç olması elzemdir.
+
+Türk milliyetçiliğinin bu tür krizlere bakışı nettir: Çözüm dışarıdan dayatılan senaryolarda ya da bir tarafın safında yer almakta değil, kendi iç gücümüzde, milli birliğimizde ve bağımsız politikalarımızdadır. Türkiye, bölgesel aktörlerle yapıcı diyaloglar kurarken, ulusal egemenliğinden ve Türk dünyasının ortak çıkarlarından asla taviz vermemelidir. Bu gerilimlerin Türkiye'yi içine çekmeye çalışan birer tuzak olabileceği unutulmamalıdır. Türk milleti, tarihi derinliği ve jeopolitik konumu gereği, bu tür oyunların üstesinden gelebilecek irade ve kabiliyete sahiptir. Vatansever her Türk, dış güçlerin bölgeyi kendi oyun bahçesine çevirme hevesine karşı dik durmalı, milli menfaatlerimizi her şeyin üzerinde tutarak daha güçlü ve bağımsız bir Türkiye hedefine kilitlenmelidir.
