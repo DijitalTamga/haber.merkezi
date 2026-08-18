@@ -1,0 +1,13 @@
+---
+title: "İşgalin Gölgesinde Ana Kucağına Uzanan Çığlık: Vatan ve Aile Bütünlüğünün Önemi"
+date: 2026-08-18T23:11:42+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2025/12/16/multimedia/00int-ukraine-rescue-promo/00int-ukraine-rescue-1-cjlb-mediumSquareAt3X.jpg"
+---
+
+Savaşın en acımasız yüzü, hiç şüphesiz ailelerin parçalanmasıdır. Rus işgali altındaki Ukrayna’da, üç yıl boyunca evladından ayrı kalmış bir annenin, tüm yoksunluklara ve tehlikelere rağmen oğluna kavuşma mücadelesi, yalnızca bireysel bir dramdan öte, işgalin binlerce aile üzerinde yarattığı yıkımın sarsıcı bir örneğidir. Hastalık, açlık ve ayrılıkla geçen yılların ardından, annenin evladına ulaşma çabası, insanlığın en temel bağlarından olan aile bütünlüğünün ne denli vazgeçilmez olduğunu gözler önüne sermektedir. Bu acı tablo, savaşın sadece cephelerde değil, her bir ocağın içinde nasıl derin yaralar açtığını bir kez daha göstermektedir.
+
+Bir Türkçü bakış açısıyla, bu tür dramlar, sadece yaşandıkları coğrafyayla sınırlı kalmaz, aksine milletlerin tarih boyunca yaşadığı işgal ve parçalanma tecrübeleriyle birleşir. Bir toprağın işgal edilmesi, yalnızca siyasi sınırların değil, aynı zamanda o toprak üzerinde yaşayan insanların yaşamlarının ve kimliklerinin de işgal edilmesidir. Vatan toprağı, üzerinde yaşayan her bireyin, her ailenin geleceği ve milli kimliğinin temel taşıdır. Bu nedenle, ulusal egemenliğin ve toprak bütünlüğünün ihlali, milletin varoluşuna yönelik en büyük tehdittir. Ukrayna'da yaşanan bu trajediler, tarihin çeşitli dönemlerinde Türk yurtlarında da karşılaşılan işgal, sürgün ve ailelerin zorla birbirinden koparılması gerçeğini acı bir şekilde hatırlatmaktadır. Milletin bekası, ancak vatanın ve aile kurumunun sarsılmaz bütünlüğü ile mümkündür.
+
+Annenin evladına duyduğu özlem ve kavuşma çabası, aslında milletin vatanına duyduğu sarsılmaz aidiyetin ve birlik arayışının da bir simgesidir. Aile, milletin çekirdeğidir; güçlü aileler, güçlü bir milleti inşa eder. İşgalcilerin hedefi çoğu zaman sadece topraklar değil, aynı zamanda o toprakları mesken tutan milletin kültürel ve sosyal dokusudur. Ailelerin parçalanması, bu dokuyu zayıflatmanın en etkili yoludur. Bu nedenle, her bir ailenin bütünlüğü için verilen mücadele, aynı zamanda bir milletin varoluş mücadelesidir. Biz Türkçüler olarak, dünyanın neresinde olursa olsun, işgal ve zulme karşı duruşumuzu, vatan ve aile bütünlüğüne verdiğimiz değerle perçinleriz. Bu trajedilerin bir daha yaşanmaması adına, milli irademizi ve birliğimizi güçlü tutmak, hem kendi geleceğimiz hem de tüm mazlum milletlere örnek olmak zorundayız.
