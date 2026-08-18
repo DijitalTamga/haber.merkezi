@@ -1,0 +1,13 @@
+---
+title: "Milli Dayanışma: Türk Kimliğiyle Bütünleşen Gerçek Bir Duruş mu, Oyalama Taktiği mi?"
+date: 2026-08-18T17:17:13+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2476000/tbmmdha-2477375.jpg"
+---
+
+1.  Milli Dayanışma Kurulu'nun 24 Ağustos'ta ilk toplantısını yapacak olması, milletimizin gündemine önemli bir konuyu taşıyor. Adı üstünde "Milli Dayanışma ve Toplumsal Bütünleşme" hedefleriyle kurulan bu yapının, Türk Milleti için ne anlam ifade edeceği büyük önem taşıyor. Biz Türkçüler olarak, "milli" kelimesinin taşıdığı derin anlama her şeyden çok kıymet veririz. Ancak önemli olan, bu ismin ardındaki eylemlerin, gerçekte Türk kimliği, kültürü ve geleceği ile ne kadar örtüştüğüdür. Bu kurulun gündemi, ülkemizin mevcut şartlarında yüzeysel bir iyimserlik mi sunacak, yoksa milletimizin köklerine inen gerçekçi çözümler mi üretecek?
+
+2.  Gerçek bir milli dayanışma, ancak ve ancak ortak bir kimlik, tarih şuuru, dil ve kültürel değerler etrafında kenetlenmiş bir milletin varlığıyla mümkündür. Türk Milleti'nin binlerce yıllık serüveninde varlığını sürdürmesini sağlayan yegane güç de budur. Bu bağlamda, "toplumsal bütünleşme" söylemlerinin, Türk kimliğini aşındırıcı, ayrılıkçı unsurları meşrulaştırıcı veya farklı kimlikleri eşitler gibi göstererek Türk Milleti'nin birliğini zayıflatıcı yaklaşımlardan uzak durması elzemdir. Aksi takdirde, dayanışma adı altında yürütülecek her türlü faaliyet, milletin temel direklerini güçlendirmek yerine, onları daha da aşındırma riski taşır. Kurulun, Türk Milleti'nin üstün çıkarlarını, kültürel birliğini ve kimliksel bütünlüğünü merkeze almayan bir yaklaşım benimsemesi, adındaki "milli" sıfatını boşa çıkaracaktır.
+
+3.  Türkiye Cumhuriyeti Devleti'nin varlık sebebi olan Türk Milleti'nin bütünlüğü ve dayanışması, resmi toplantılarla yahut kurumsal yapılarla değil, öncelikle eğitimden kültüre, medyadan sosyal politikalara kadar her alanda Türk kimliğinin pekiştirilmesiyle inşa edilir. Bu kuruldan beklentimiz, popülist söylemlerden arınmış, Türk Milleti'nin varlığını, birliğini ve geleceğini güvence altına alacak somut adımlar atılmasıdır. Türkiye'nin gerçek sorunları, kimlik erozyonu, kültürel yozlaşma ve milli şuur kaybıdır. Milli Dayanışma Kurulu, eğer bu temel sorunlara Türkçü bir perspektifle, tavizsiz ve rasyonel çözümler sunarsa, gerçekten "milli" bir görevi yerine getirmiş olacaktır. Aksi takdirde, bu kurul da gelip geçici bir siyasi manevra olmaktan öteye gidemeyecektir. Türk Milleti'nin yüreğindeki gerçek dayanışma ruhunu harekete geçirecek olan yegane güç, Türk töresine ve kimliğine bağlılıktır.
