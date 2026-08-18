@@ -1,0 +1,12 @@
+---
+title: "Milletin Teminatı Bilimdir: Deprem Değil, Tedbirsizlik Öldürür!"
+date: 2026-08-18T05:19:14+03:00
+draft: false
+
+---
+
+Türkiye İnşaat Malzemesi Sanayicileri Derneği'nin (İMSAD), 17 Ağustos Marmara Depremi'nin 27. yıl dönümünde kamuoyuyla paylaştığı araştırma sonuçları, Türk milletinin yüzleşmesi gereken acı bir gerçeği bir kez daha gözler önüne sermiştir: Deprem kaygımız yüksek ancak bu kaygıya paralel bir hazırlık ve yapı güvenliği bilinci maalesef henüz oluşmamıştır. Bu durum, Türk yurdunda yaşayan her bir bireyin ve milletin geleceğini yönetenlerin öncelikli meselesi olmalıdır. Zira kadim topraklarımızın kaçınılmaz bir gerçeği olan depremle yaşamak, ancak bilim ve akıl rehberliğinde alınacak sağlam tedbirlerle mümkündür.
+
+Türk milleti olarak, yüzyıllardır depremlerle sınanmış bir coğrafyada varlık mücadelemizi sürdürmekteyiz. Ancak bu coğrafyanın bize yüklediği sorumlulukları ne yazık ki yeterince idrak edemiyor, her felaket sonrası aynı döngüye düşme eğilimini sürdürüyoruz. Yapılan araştırmalar, toplumda hissedilen korkunun büyüklüğünü gösterse de, bu korkuyu somut adımlara dönüştürme iradesinin yetersiz kaldığını işaret ediyor. Bir yapının güvenliği, sadece inşa edildiği anla sınırlı değil, aynı zamanda bilimsel normlara uygunluğu, denetimi ve sürekli bakımıyla doğrudan ilişkilidir. Ancak mevcut tablo, bu hayati zincirin birçok halkasında aksaklıklar yaşandığını açıkça ortaya koymaktadır. Milletimizin bekası, ancak mühendislik bilimine saygı duyan, liyakatli kadrolarla çalışan ve denetim mekanizmalarını şeffaf ve tavizsiz işletebilen bir yapılaşma kültürü ile temin edilebilir.
+
+Bu derin kaygı ve hazırlıksızlık tablosundan çıkış yolu bellidir: Bilim, disiplin ve milli şuur. Türk milleti, kendi geleceğini güvence altına almak zorundadır. Bunun için öncelikle mevcut yapı stokunun bilimsel metotlarla hızla incelenmesi, riskli binaların belirlenmesi ve dönüşüm süreçlerinin hızlandırılması elzemdir. Yapı denetim mekanizmaları siyasetin ve şahsi çıkarların gölgesinden çıkarılmalı, liyakatli ve milli sorumluluk bilinciyle hareket eden uzmanlara emanet edilmelidir. Her bir Türk ferdi, yaşadığı yapının güvenliğini sorgulamalı, gerekli önlemleri almak için bilinçlenmeli ve talepkâr olmalıdır. Unutulmamalıdır ki, sağlam bir vatan, sağlam yapılar üzerinde yükselir. Milletin can ve mal güvenliği, "kader" diyerek geçiştirilemeyecek kadar kutsaldır. Türk’ün vatanı, bilimle, akılla ve demir gibi iradeyle korunacaktır.
