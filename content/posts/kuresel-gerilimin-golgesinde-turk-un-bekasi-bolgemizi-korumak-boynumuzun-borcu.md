@@ -1,0 +1,12 @@
+---
+title: "Küresel Gerilimin Gölgesinde Türk'ün Bekası: Bölgemizi Korumak Boynumuzun Borcu"
+date: 2026-08-19T11:14:39+03:00
+draft: false
+
+---
+
+1.  Son dönemde ortaya çıkan haberler, Ortadoğu'daki ABD-İran geriliminin sadece bölgesel bir çatışma olmaktan çıkıp Avrupa'yı da içine çekebilecek bir boyuta evrildiğine işaret etmektedir. İran'ın ABD ile muhtemel bir çatışmada Avrupa'daki askeri hedefleri değerlendirmesi, mevcut jeopolitik denklemin ne denli kırılgan ve tehlikeli olduğunu gözler önüne sermektedir. Bu tür pervasız tehditler ve misilleme planları, bölgemizin huzurunu ve istikrarını doğrudan tehdit etmekle kalmayıp, Türk milletinin stratejik konumunu da büyük bir sınavla karşı karşıya bırakmaktadır. Başka devletlerin güç savaşları, bizim coğrafyamızın yeni bir yangın yerine dönme potansiyeli taşımaktadır ki bu durum, Türk milleti için kabul edilemezdir.
+
+2.  Böylesi bir konjonktürde, Türk milletinin soğukkanlılığını koruyarak rasyonel ve milli çıkarlarını temel alan bir dış politika izlemesi hayati önem taşımaktadır. Küresel güçlerin kendi hegemonyalarını tesis etme çabaları ve bölgesel aktörlerin bu çekişmede taraf olma veya olma durumları, her zaman en büyük zararı bölge halklarına ve özellikle de Türk dünyasına vermiştir. Tarih bize, güçlü ve bağımsız bir Türk devletinin olmadığı her dönemin, bölgemizde istikrarsızlık ve yıkımla sonuçlandığını defalarca göstermiştir. Bu nedenle, İran ile ABD arasındaki gerilimi salt bir dış sorun olarak görmek yerine, kendi güvenliğimize ve geleceğimize yönelik potansiyel bir tehdit olarak değerlendirmek zorundayız. Başkalarının kavgası, bizim evimizin kapısına dayanmadan önce, milli savunma ve diplomasi yeteneklerimizi en üst düzeyde kullanmalıyız.
+
+3.  Türk milletinin bu karmaşık denklemde izlemesi gereken yol bellidir: Kendi birliğini, gücünü ve bağımsızlığını tahkim etmek. Ne ABD'nin ne de İran'ın bölgesel çıkarlarının peşinden gitmek yerine, sadece ve sadece Türk'ün bekasını, refahını ve güvenliğini esas alan bir strateji belirlemeliyiz. Güçlü bir ordu, sağlam bir ekonomi ve milli bilinci yüksek bir toplum, böylesi zorlu dönemlerde ayakta kalmanın tek yoludur. Türkiye, kendi kaderini kendi elleriyle yazmalı, bölgesel istikrarsızlık ateşinin Türk topraklarına sıçramasına asla müsaade etmemelidir. Bölgemizi kimsenin oyuncağı yapmamak, Türk'ün iradesini ve gücünü tüm dünyaya göstermek, bugün her zamankinden daha büyük bir milli görevdir.
