@@ -1,0 +1,13 @@
+---
+title: "Ordu'da Kültür Yolu: Milli Kimliğimizin Derin İzlerini Keşfetme Vakti"
+date: 2026-08-19T10:16:44+03:00
+draft: false
+cover:
+    image: "https://image.hurimg.com/i/hurriyet/90/620x350/6a85804fb506f6e33737f431.jpg"
+---
+
+Kültür ve Turizm Bakanlığı'nın "Türkiye Kültür Yolu Festivali"nin on beşinci durağı olarak Ordu'ya uğraması, biz Türk milliyetçileri için sıradan bir etkinlikten çok daha fazlasını ifade ediyor. 22-30 Ağustos tarihleri arasında dokuz gün sürecek bu festival, konserlerden sergilere, söyleşilerden gastronomi rotalarına kadar geniş bir yelpazede programlar sunacak. Ancak önemli olan, bu etkinliklerin içeriği ve Türk milletinin öz kültürüne ne denli hizmet ettiğidir. Küreselleşmenin getirdiği kültürel karmaşada, kendi köklerimize dönmek, kadim Türk töresi ve yaşayış biçiminden süzülüp gelen değerleri gün yüzüne çıkarmak hayati bir zorunluluktur. Ordu'daki bu durak, Anadolu'nun bereketli coğrafyasında yaşayan Türk insanının benzersiz kimliğini bir kez daha hatırlatma fırsatı sunmalıdır.
+
+Ordu'nun yaylaları, bereketli toprakları ve bunun şekillendirdiği zengin mutfak kültürü, sadece damak tadımıza hitap eden unsurlar değildir; bunlar aynı zamanda Türk'ün doğayla, toprakla, emekle kurduğu derin bağın somutlaşmış halidir. 40'tan fazla Lezzet Noktası'nda sunulacak yöresel tatlar, sadece birer yemek değil, nesillerdir Karadeniz'in direngen ve çalışkan insanının yaşam felsefesini, dayanışmasını ve özgünlüğünü yansıtan kültürel miras parçalarıdır. Bu festival, modernleşme adı altında unutturulmaya çalışılan, yozlaşmaya yüz tutmuş değil; tam aksine, özgün ve milli karakterini koruyan, Türk milletinin ruhundan süzülüp gelmiş değerlerin tanıtılmasına ve gelecek nesillere aktarılmasına bir köprü olmalıdır. Kültürümüzü oluşturan her bir unsurun, Türk'e özgü niteliklerinin vurgulanması, kimlik bilincimizi diri tutmanın anahtarıdır.
+
+Kültür festivalleri, sadece birer eğlence aracı olarak görülmemeli, aynı zamanda milli kimliğin pekiştirilmesi ve kültürel bağımsızlığın korunması için stratejik birer platform olarak ele alınmalıdır. Dijital Tamga olarak savunduğumuz üzere, bu tür etkinlikler, Türk milletinin özgün ve eşsiz medeniyet birikimini, başka kültürlerin gölgesinde kalmadan, kendine özgü ihtişamıyla sergileme misyonunu üstlenmelidir. Ordu'da yaşanacak bu kültürel şölen, Türk gençliğinin kendi öz değerleriyle tanışması, geçmişiyle gurur duyması ve geleceğe milli şuurla yürümesi için önemli bir vesile olmalıdır. Kültürümüzü yaşatmak, sadece eserleri korumak değil, aynı zamanda o eserleri yaratan Türk ruhunu ve bilincini de yaşatmaktır; bu da her Türkçünün başlıca borcudur.
