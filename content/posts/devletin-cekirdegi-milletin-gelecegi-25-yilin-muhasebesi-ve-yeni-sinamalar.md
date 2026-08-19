@@ -1,0 +1,13 @@
+---
+title: "Devletin Çekirdeği, Milletin Geleceği: 25 Yılın Muhasebesi ve Yeni Sınamalar"
+date: 2026-08-19T04:25:44+03:00
+draft: false
+cover:
+    image: "https://www.youtube.com/embed/L-KL2xWmE9E"
+---
+
+Türkiye'nin gidişatı üzerine yapılan değerlendirmeler, her biri milli varlığımız için kritik anlamlar taşıyan üç ana başlık etrafında toplanıyor: Bir siyasi partinin çeyrek asrı bulan iktidar ömrü, bir cemaate yönelik operasyon ve geleceğe yön verecek "çerçeve yasa" tartışmaları. Medyascope'un gündeme taşıdığı bu konular, Türk milliyetçileri olarak bizim için sadece günlük siyasetin parçaları değil, aynı zamanda Türk Devleti'nin bekası ve Türk Milleti'nin geleceği adına derinlemesine düşünülmesi gereken mihenk taşlarıdır. Akıl ve bilim yolunda ilerleyen bir millet olarak, duygusal tepkilerden ziyade, ulusal çıkarlarımızı gözeten rasyonel bir bakış açısıyla bu gelişmeleri tahlil etmek zorundayız.
+
+Yirmi beş yıl, bir devletin tarihinde belki kısa bir süre gibi görünse de, modern bir ulus-devletin çehresini şekillendirmek adına oldukça uzun bir zaman dilimidir. Bu çeyrek asırlık süreçte, Türk Devleti'nin temel nitelikleri, kurumların işleyişi ve toplum yapımız üzerinde kalıcı etkiler bırakılmıştır. Bir siyasi gücün bu denli uzun soluklu iktidarı, doğal olarak devletin her kademesinde nüfuzunu artırmış, ancak bu durumun ulusal birliğimiz ve devlet geleneğimiz üzerindeki etkileri sürekli sorgulanmalıdır. Türk Milleti'nin ortak çıkarlarını ve bağımsızlığını merkeze almayan her türlü siyasi hamle, uzun vadede milli bütünlüğümüzü zedeleyecektir. Bu sebeple, geçmişin muhasebesi yapılırken, gelecek nesillere daha güçlü ve birleşik bir Türkiye bırakma sorumluluğumuzdan asla vazgeçilmemelidir.
+
+Devletin yegane otorite ve güç kaynağı olduğu ilkesi, Türk milliyetçiliğinin temelidir. Herhangi bir yapının, adıyla sanıyla fark etmeksizin, devletin egemenliği ve ulusal birliğin üzerinde bir güç odağı oluşturma çabası kabul edilemez. Süleymancılara yönelik operasyon da bu çerçevede ele alınmalıdır; devletin kendi içindeki paralel yapılaşmalara veya milli bütünlüğü tehdit eden unsurlara karşı gerekli tedbirleri alması kaçınılmazdır. Ancak bu operasyonların, devletin temel ilkelerinden sapmadan, adalet ve hukuk çerçevesinde yürütülmesi esastır. Öte yandan, gündemdeki "çerçeve yasa" kavramı ise, geleceğe dair endişelerimizi körüklemektedir. Çıkarılacak her yasa, Türk Devleti'nin üniter yapısını pekiştirmeli, milli egemenliği güçlendirmeli ve Türk Milleti'nin ortak değerlerini korumalıdır. Akıl ve bilimi rehber edinen, milli menfaatleri her türlü kişisel veya grup çıkarının üstünde tutan bir anlayışla hareket etmek, Türk Milleti'nin ve Türkiye Cumhuriyeti'nin geleceği için vazgeçilmez bir zorunluluktur.
