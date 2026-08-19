@@ -1,0 +1,13 @@
+---
+title: "Ulus Devletin Bekası Tehdit Altında: Anayasa Oyunları ve Tarikatların Gölgesindeki 'Büyük Plan'"
+date: 2026-08-19T03:40:24+03:00
+draft: false
+cover:
+    image: "https://www.youtube.com/embed/1SLUpQglzNE"
+---
+
+Medyascope'ta Sorel Dağıstanlı ile 8. Gün programında ele alınan Süleymancılar konusu, yeni anayasa tartışmaları ve dillendirilen "25 yıllık plan" gibi başlıklar, aslında Türk ulusunun kimliğine ve Türkiye Cumhuriyeti'nin temel değerlerine yönelik kapsamlı bir tehdidin farklı cepheleri olarak görülmelidir. Bir milletin varlığını ve geleceğini ilgilendiren bu kritik konuların bir arada tartışılması, tehlikenin ne denli bütüncül ve derin olduğunu açıkça ortaya koymaktadır. Tarikatvari yapıların milletin kaynaklarını sömürme iddiaları, eğitim sistemine sızma gayretleri ve ulusal birliği zedeleyici faaliyetleri; toplumun milli dayanışma ruhunu aşındırarak, bireyleri ulusal kimlikten uzaklaştıran aidiyetlere sürüklemektedir. Bu durum, devletin temel yapısını ve ulusal birliğini içeriden zayıflatma potansiyeli taşımaktadır.
+
+Türkiye Cumhuriyeti'nin kuruluş felsefesini ve Atatürkçü değerleri hedef alan her türlü anayasal değişiklik girişimi, Türk milliyetçileri için kabul edilemezdir. Mevcut anayasa, eleştirilere açık olsa da, ulus devletimizin temel taşlarını ve Türk milletinin çağdaş uygarlık hedefindeki yol haritasını belirleyen önemli ilkeleri barındırmaktadır. Yeni bir anayasa bahanesiyle, Cumhuriyet'in laik, üniter ve milli yapısını bozmaya yönelik her adım, Türk milletinin binbir emekle kurduğu devletin varlığına kastetmektir. Dillendirilen "25 yıllık plan" gibi uzun vadeli stratejiler ise, bu anayasal değişiklik arayışlarının sadece birer başlangıç adımı olduğunu, asıl hedefin Türk modernleşmesini ve ulusal kimliğini tamamen dönüştürmek olduğunu düşündürmektedir. Bu tür planlar, Türk gençliğini ve gelecek nesilleri kendi milli özünden kopararak, farklı ideolojilerin etkisine açma tehlikesi taşımaktadır.
+
+Bu çerçevede, her Türk milliyetçisinin ve ulusuna bağlı her vatandaşın bu konulara azami dikkatle yaklaşması zorunluluktur. Ulusal kimliğimizin, dilimizin, tarihimizin ve Cumhuriyetimizin temellerinin erozyona uğramasına asla izin verilmemelidir. Tarikatvari yapıların karanlık emelleriyle, anayasal değişim maskesi altında gerçekleştirilmek istenen "büyük plan"ın asıl amacı, Türk milletinin egemenliğini ve ulusal iradesini ipotek altına almaktır. Unutulmamalıdır ki, güçlü bir devlet ancak milli kimliğine sahip çıkan, kendi öz değerleriyle yükselen ve hiçbir ideolojiye boyun eğmeyen bir milletle ayakta kalabilir. Uyanık olmak, sorgulamak ve Türk'ün sesini yükseltmek, bugün her zamankinden daha fazla görevimizdir.
