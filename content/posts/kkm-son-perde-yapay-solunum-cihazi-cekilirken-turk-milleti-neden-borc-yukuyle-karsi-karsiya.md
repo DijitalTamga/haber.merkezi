@@ -1,0 +1,12 @@
+---
+title: "KKM Son Perde: Yapay Solunum Cihazı Çekilirken Türk Milleti Neden Borç Yüküyle Karşı Karşıya?"
+date: 2026-08-20T12:21:58+03:00
+draft: false
+
+---
+
+Uzun bir süredir Türk ekonomisinin üzerinde bir gölge gibi duran Kur Korumalı Mevduat (KKM), nihayet son demlerini yaşıyor. BDDK verilerine göre, KKM bakiyesi sembolik bir seviye olan 4 milyon liraya kadar geriledi. Bu, bir dönem dövizdeki yükselişi frenlemek adına hayata geçirilen ve milyarlarca liralık bir yükü milletin sırtına yıkan bu yapay mekanizmanın sonuna gelindiğini gösteriyor. KKM, gerçek bir ekonomik modelden ziyade, sorunları halının altına süpürmeyi amaçlayan, ulusal kaynakları tüketen ve piyasa dinamiklerini bozan geçici bir "çözüm" idi. Bir Türkçü bakış açısıyla ifade etmek gerekirse, Türk milletinin alın teri ve vergileri, sağlıklı bir üretim ekonomisine aktarılmak yerine, kısa vadeli manipülasyonlarla kur istikrarı yanılsaması yaratmak için harcandı.
+
+KKM'nin devreden çıkmasıyla birlikte ortaya çıkan tablo ise çok daha düşündürücü. Aynı dönemde bankacılık sektörünün toplam kredi hacmi, tüketici kredileri ve bireysel kredi kartı borçları rekor seviyelere ulaştı. Bu durum, bir yapay solunum cihazından kurtulurken, Türk insanının başka bir borç girdabına sürüklendiğini açıkça gösteriyor. Üretime, ihracata ve katma değerli sanayiye dayanmayan bir ekonomik sistemin kaçınılmaz sonucudur bu. Milli servetimizi üretmek yerine tüketime yönlendiren, halkımızı borçlandırmaya teşvik eden bu politikalar, Türk milletinin ekonomik bağımsızlığını tehlikeye atmaktadır. Gerçek bir milli ekonomi, borçlanmayla değil, kendi kaynaklarını en verimli şekilde kullanarak, üreterek ve dünya pazarlarına açılarak yükselir.
+
+Bizler, Dijital Tamga olarak, Türk ekonomisinin bu tür suni teneffüslerden ve borçlanma bağımlılığından kurtularak, özüne dönmesini savunuyoruz. Türk milleti, spekülatif piyasa oyunlarına kurban edilmeyecek kadar büyük ve köklü bir ekonomik potansiyele sahiptir. Gerçek çözüm, liyakatli kadrolarla, bilimsel ve rasyonel yöntemlerle, topyekûn bir üretim seferberliği başlatmaktır. Türk sanayicisinin önünü açmak, tarımımızı güçlendirmek, genç beyinlerimizi bilim ve teknolojiye yönlendirmek zorundayız. Gelecek nesillerimize borç değil, müreffeh ve bağımsız bir Türk ekonomisi bırakmak hepimizin ulusal görevidir. Milli kalkınma, günü kurtaran çözümlerle değil, sağlam temeller üzerine inşa edilen stratejik planlarla mümkündür.
