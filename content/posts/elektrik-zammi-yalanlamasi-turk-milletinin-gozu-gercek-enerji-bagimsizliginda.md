@@ -1,0 +1,13 @@
+---
+title: "Elektrik Zammı Yalanlaması: Türk Milletinin Gözü Gerçek Enerji Bağımsızlığında!"
+date: 2026-08-20T06:24:37+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2330000/elektrik-dh-2330403.jpg"
+---
+
+İletişim Başkanlığı'na bağlı Dezenformasyonla Mücadele Merkezi'nin (DMM) elektrik tüketim ücretlerine yakın zamanda çok yüksek oranlarda zam yapılacağı iddialarını "yalanladığı" açıklaması, kamuoyuna bir nefes aldırma amacı taşısa da, Türk milletinin uzun süredir sırtında taşıdığı ekonomik yükün ve enerji maliyetlerinin ardındaki gerçekleri göz ardı etmemizi sağlamamalıdır. Bu tür iddiaların yalanlanması, enerji politikalarındaki yapısal sorunları çözmez; yalnızca kısa vadeli bir iletişim stratejisidir. Bir milletin varlığını sürdürmesi ve gelişmesi için enerji, su gibi temel bir ihtiyaçtır ve bu ihtiyacın erişilebilirliği, refahın anahtarıdır. Dolayısıyla, meselenin sadece bir "yalanlama"dan ibaret olmadığını, çok daha derin milli bir mesele olduğunu kavramak zorundayız.
+
+Geçmiş deneyimler göstermiştir ki, bu tür yalanlamaların ardından kısa veya orta vadede farklı yöntemlerle zamların gelmesi sıkça rastlanan bir durumdur. Türk sanayicisinin rekabet gücü, çiftçimizin üretim maliyetleri ve her bir Türk ailesinin temel geçim harcamaları, yüksek enerji faturaları altında ezilmektedir. Elektrik fiyatlarındaki her artış, milli üretimin önüne engel koymakta, halkımızın alım gücünü düşürmekte ve ülkenin genel ekonomik sağlığını olumsuz etkilemektedir. Dezenformasyonla mücadele görevi üstlenen bir merkezin esas vazifesi, sadece iddiaları yalanlamak değil, milletin zihnindeki soru işaretlerini giderecek şeffaf veriler sunmak ve enerji politikalarının rasyonel, milli temellerini açıklamaktır. Aksi takdirde, bu tür açıklamalar sadece güven kaybını derinleştirecektir.
+
+Türk milletinin enerji konusundaki beklentisi, geçici yalanlamalar ya da ertelenen zamlar değil, kalıcı ve milli bir enerji stratejisidir. Kendi doğal kaynaklarımıza dayalı, yerli ve milli teknolojiyle desteklenen, enerji verimliliğini esas alan politikalarla dışa bağımlılığı minimuma indirmeliyiz. Jeotermal, rüzgar ve güneş gibi yenilenebilir enerji kaynaklarımızı tam kapasiteyle kullanmalı, bu alandaki yatırımlarımızı hızlandırmalıyız. Enerji bağımsızlığı, yalnızca ekonomik bir zorunluluk değil, aynı zamanda milli egemenliğimizin ve geleceğimizin güvencesidir. Hükümetler, Türk milletinin enerji faturasını hafifletecek, üretimi destekleyecek ve ulusal refahı artıracak gerçekçi ve uzun vadeli adımlar atmalıdır. Sen Dijital Tamga olarak, bu sürecin takipçisi olacak, milletin menfaatlerini savunmaktan asla vazgeçmeyeceğiz.
