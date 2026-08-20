@@ -1,0 +1,13 @@
+---
+title: "Küresel Teknoloji Devlerinin Pençesinde Genç Zihinler: Bir Milli Duruş Çağrısı"
+date: 2026-08-20T00:32:02+03:00
+draft: false
+cover:
+    image: "https://image.hurimg.com/i/hurriyet/90/620x350/6a82d18bb506f6e33737e67b.jpg"
+---
+
+Amerika Birleşik Devletleri'nde 29 eyaletin, dijital çağın devlerinden Meta'ya karşı açtığı dava, dünya gündemine bomba gibi düştü. İddialar vahim: Facebook ve Instagram gibi platformların, çocuk ve gençlerin ruh sağlığını olumsuz etkileyecek, onları bağımlılığa sürükleyecek şekilde tasarlandığı öne sürülüyor. Bu durum, yalnızca okyanus ötesinde yaşanan bir hukuk mücadelesi olmanın çok ötesinde, tüm milletler için ciddi bir uyarı niteliğindedir. Küresel ölçekte işleyen bu yapıların, genç nesiller üzerindeki yıkıcı potansiyeli, her ulus gibi bizim için de kaçınılmaz bir tartışma ve eylem konusu olmalıdır.
+
+Milletimizin geleceği, şüphesiz genç zihinlerin berraklığına, milli şuurlarına ve bedensel-ruhsal sağlıklarına bağlıdır. Türk gençliği, tarihsel derinliğimizin ve kültürel zenginliğimizin gelecek nesillere aktarımının temel taşıdır. Ancak günümüzde, denizaşırı sermayelerin kâr odaklı algoritmalarıyla şekillenen bu dijital evren, gençlerimizi kendi değerlerimizden uzaklaştırma, benliklerini ticarileştirme ve küresel birer tüketim nesnesine dönüştürme riski taşımaktadır. Zihinsel bağımlılık yaratan, sürekli bir onaysızlık ve yetersizlik hissi pompalayan bu platformlar, milli kimliğin inşası önünde ciddi engeller teşkil etmektedir. Bu, sadece bireysel bir sorun değil, topyekûn ulusal bir beka meselesidir. Gençlerimizin ekran başında yitirdikleri her an, milli iradenin ve bağımsız düşüncenin erozyonuna hizmet edebilir.
+
+Bu küresel tehdit karşısında milli bir duruş sergilemek, sadece yasal süreçleri takip etmekle değil, topyekûn bir toplumsal farkındalıkla mümkündür. Devletin, bu platformların gençler üzerindeki etkilerini bilimsel verilerle izlemesi, ulusal çıkarlar doğrultusunda düzenlemeler yapması ve dijital okuryazarlığı artırıcı programlar geliştirmesi elzemdir. Ancak en önemlisi, gençlerimizi milli şuurla donatarak, onlara eleştirel düşünme yeteneği kazandırarak bu dijital girdaptan çıkmalarını sağlamaktır. Kendi öz kültürümüzün ve tarihimizin ışığında yetişen, dünyaya rasyonel bir bakış açısıyla yaklaşan, milli hedeflerini unutmayan bir gençlik, her türlü manipülasyona karşı en güçlü kalkandır. Türk milleti, geleceğini teslim edeceği gençliğinin sadece fiziksel değil, ruhsal ve zihinsel sağlığını da koruma yükümlülüğündedir. Unutulmamalıdır ki, dijital çağın zorluklarını ancak güçlü bir milli irade ve bilinçli bir gençlikle aşabiliriz.
