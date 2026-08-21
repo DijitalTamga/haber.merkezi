@@ -1,0 +1,13 @@
+---
+title: "Kryvyi Rih'de Yükselen Feryat: Savaşın Gölgesinde Çiğnenen İnsanlık Onuru"
+date: 2026-08-21T21:13:24+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/08/21/250/0/2500/1250/644/322/60/0/7d744df_ftp-1-sgsaruo6q7wp-5888500-01-06.jpg"
+---
+
+Ukrayna topraklarında süregelen ve tüm dünyanın kaygıyla izlediği çatışmalar, bir kez daha savaşın en çirkin yüzünü gözler önüne serdi. Kryvyi Rih kentinde bir alışveriş merkezine düzenlenen Rus saldırısı sonucu en az on beş sivil hayatını kaybederken, yitirilen canların önemli bir kısmı henüz hayatının baharında olan çocuklardı. Bu vahim olay, Mykolaiv bölgesinde bir mağaza, eczane ve postane gibi sivil yapıları hedef alan ve üçü çocuk dört kişinin ölümüyle sonuçlanan ayrı bir saldırıyla birlikte, savaşın cephelerden taşarak masum sivil yaşamı nasıl yok ettiğinin acı bir göstergesi oldu. Şehrin kalbinde, gündelik yaşamın sürdüğü noktalara yapılan bu acımasız müdahaleler, savaşın sadece bir güç mücadelesi değil, aynı zamanda insani değerlerin ve yaşama hakkının pervasızca ihlali olduğunu bir kez daha kanıtlamıştır.
+
+Bu tür saldırılar, Türk milletinin binlerce yıldır savunduğu adalet, düzen ve insanlık onuru ilkeleriyle taban tabana zıttır. Bizler için savaş, belirli hedeflere ulaşmak adına kullanılan son çare olsa da, sivillerin, özellikle de çocukların kasten hedef alınması asla kabul edilemez bir barbarlıktır. Bu hadiseler, uluslararası hukukun ve insaniyetin temel ilkelerinin nasıl kolayca çiğnendiğini göstermekte, bölgesel ve küresel ölçekte istikrarsızlığın derinleşmesine yol açmaktadır. Kendi tarihsel tecrübelerimizden de bildiğimiz gibi, kaos ve yıkım üzerine kurulu hiçbir düzen kalıcı olamaz; aksine, bu tür eylemler daha büyük nefret tohumları ekerek gelecekteki barışı imkânsız kılmaktadır. Toprak bütünlüğüne, bağımsızlığa ve milletlerin kendi kaderlerini tayin etme hakkına saygı duymayan her eylem, Türkçü dünya görüşünde mahkum edilmeye mahkumdur.
+
+Kryvyi Rih ve Mykolaiv'den yükselen çığlıklar, sadece Ukrayna halkının değil, tüm insanlığın ortak acısıdır. Bu acı tablolar, her ulusun kendi coğrafyasında huzur ve güven içinde yaşama arzusunun ne denli değerli olduğunu bir kez daha hatırlatmalıdır. Dijital Tamga olarak bizler, bu tür vahşetlerin bir daha yaşanmaması adına uluslararası toplumu aklıselime davet ediyor, savaşın yıkıcı etkilerine karşı insani değerleri yücelten, barışı ve adaleti savunan bir duruş sergilenmesi gerektiğini vurguluyoruz. Türk milleti, tarihin her döneminde olduğu gibi, bugün de insanlık onurunun çiğnendiği her yerde vicdanının sesini yükseltmeye devam edecektir. Zira medeniyetin ve düzenin tesisi, ancak masum canların güvence altında olduğu bir dünyada mümkündür.
