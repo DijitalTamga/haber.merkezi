@@ -1,0 +1,12 @@
+---
+title: "Hürmüz Boğazı ve Türkiye: Milli Menfaatlerin Kesişme Noktası"
+date: 2026-08-21T19:18:43+03:00
+draft: false
+
+---
+
+1. NATO’nun, Hürmüz Boğazı’nda seyrüsefer serbestisinin desteklenmesine yönelik olası katkıları değerlendirmek üzere ilgili müttefik ülkelerin genelkurmay başkanları düzeyinde bir toplantı düzenlemesi, küresel enerji ve ticaret yollarının ne denli kritik ve kırılgan olduğunu bir kez daha ortaya koymuştur. Dünya petrol sevkiyatının önemli bir kısmının geçiş güzergahı olan Hürmüz, coğrafi konumu itibarıyla stratejik bir düğüm noktasıdır. Bu denli kritik bir bölgedeki güvenlik ve istikrar arayışları, müttefik ülkeler arasında ortak bir yaklaşım geliştirme çabasını gösterse de, Türkiye için bu toplantının anlamı, sadece bir müttefik olarak katılımdan çok daha derindir. Ankara, bu ve benzeri küresel ölçekli jeopolitik gelişmelerde kendi milli menfaatlerini esas alan bir perspektiften hareket etmek zorundadır.
+
+2. Türk milleti, tarih boyunca üç kıtaya yayılan bir coğrafyada deniz gücünün ve stratejik geçiş noktalarının önemini iyi kavramıştır. Bugün de Türkiye, Karadeniz’den Akdeniz’e, Ege’den Doğu Akdeniz’e uzanan geniş bir etki alanına sahip, yükselen bir deniz gücüdür. Hürmüz Boğazı'ndaki gelişmeler, her ne kadar doğrudan sınırlarımızda olmasa da, küresel enerji güvenliği ve ticaret dengeleri üzerinden Türkiye'yi derinden etkileme potansiyeli taşır. Bu bağlamda, Türkiye’nin NATO içindeki rolü, sadece bir katılımcı olmakla sınırlı kalmamalı; kendi bağımsız stratejik aklını ve bölgesel liderlik vasfını ortaya koymalıdır. Kendi mühendisliğiyle geliştirdiği deniz araçları, güçlü donanması ve bağımsız dış politikasıyla Türkiye, küresel deniz yollarında söz sahibi olma iddiamızı sürdürmelidir.
+
+3. Hürmüz gibi kritik noktalarda barışın ve seyrüsefer serbestisinin korunması elbet önemlidir. Ancak bu süreçte, Türkiye’nin enerji arz güvenliği, ticaret yollarının emniyeti ve genel jeopolitik vizyonu hiçbir zaman ikincil plana düşmemelidir. NATO çatısı altında yürütülen müzakerelerde dahi, Türkiye, kadim Türk devlet geleneğinden aldığı ilhamla, güçlü ve özgün bir duruş sergilemelidir. Milli gücümüzü artırarak, kendi çıkarlarımızı gözetecek ve bölgemizde barış ve istikrara katkıda bulunacak bir dış politika izlemek, Türk milletinin şanına yakışan yegane yoldur. Hürmüz'den başlayarak tüm kritik deniz yollarında, Türkiye'nin "Dijital Tamgası" parlamaya devam etmelidir.
