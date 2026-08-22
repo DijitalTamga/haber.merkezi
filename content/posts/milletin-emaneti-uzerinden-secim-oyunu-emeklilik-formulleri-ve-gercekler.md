@@ -1,0 +1,13 @@
+---
+title: "Milletin Emaneti Üzerinden Seçim Oyunu: Emeklilik Formülleri ve Gerçekler"
+date: 2026-08-22T14:10:07+03:00
+draft: false
+cover:
+    image: "https://image.dunya.com/rcman/Cw1280h720q95gc/storage/files/images/2026/08/22/para-iuct-cover-ja8x_cover.jpg"
+---
+
+1.  Seçim dönemleri, siyasetin vaatlerle dolu popülist rüzgarları estirdiği dönemlerdir. Bu rüzgarların en yoğun hissedildiği alanlardan biri de sosyal güvenlik sistemidir. Milyonlarca vatandaşımızın hayatını doğrudan etkileyen emeklilik düzenlemeleri, her seçim öncesinde olduğu gibi şimdi de bir pazarlık masası halini almıştır. Bağ-Kur prim günlerinin düşürülmesinden kademeli emekliliğe, staj ve çıraklık mağduriyetlerinden 3600 ek göstergeye kadar uzanan altı farklı formülün gündeme gelmesi, bu popülist yaklaşımın en belirgin göstergesidir. Kuşkusuz, vatandaşlarımızın yaşam standartlarını iyileştirme arzusu meşrudur; ancak bu arzunun milli hazinenin sürdürülebilirliği ve gelecek nesillerin yükü göz ardı edilerek karşılanması, Türk Devleti'nin uzun vadeli menfaatlerine vurulacak en büyük darbe olacaktır.
+
+2.  Türkçü bir bakış açısıyla meseleye yaklaştığımızda, her kararın temelinde Türk milletinin refahı, Türk Devleti'nin bekası ve milli ekonominin gücü yatmaktadır. Sosyal güvenlik sistemi, bir lütuf değil, milli bir teminat mekanizmasıdır. Bu mekanizmanın, sağlam ekonomik temeller üzerine inşa edilmesi ve sürekli olarak üretime dayalı bir ekonomiyle beslenmesi elzemdir. Bugün seçim uğruna verilecek her popülist taviz, yarın Türk gençliğinin omuzlarına daha ağır bir yük olarak binecektir. Prim günlerini düşürmek, emeklilik yaşını esnetmek veya ek gösterge vaatleri, kısa vadede oya dönüşse de, orta ve uzun vadede bütçe açıklarını artıracak, enflasyonu körükleyecek ve en önemlisi, sosyal güvenlik fonlarını çöküş noktasına getirecek potansiyel riskler taşımaktadır. Unutulmamalıdır ki, devletin kaynakları, milletin ortak malıdır ve bu kaynaklar hesapsızca tüketildiğinde, asıl mağdur olan tüm Türk milletidir.
+
+3.  Dijital Tamga olarak çağrımız nettir: Türk Devleti'nin geleceği, günü kurtaran popülist hamlelerle değil, stratejik vizyon, rasyonel ekonomik planlama ve üretim odaklı politikalarla inşa edilmelidir. Emeklilik reformları, siyasi çıkarların ötesinde, demografik yapımız, milli gelirimiz ve gelecek projeksiyonlarımız dikkate alınarak yapılmalıdır. Bizler, Türk milletinin her ferdinin refah içinde yaşamasını isteriz; ancak bu refahın temeli, milli ekonominin gücüdür. Sadece belirli kesimlerin oyları için değil, tüm Türk milletinin nesiller boyu sürecek refahı ve Türk Devleti'nin sarsılmaz gücü için akılcı ve cesur kararlar alınmalıdır. Milletin emaneti olan devlet hazinesinin, seçim sandığı uğruna değil, Türkiye'nin güçlü yarınları için yönetilmesi elzemdir.
