@@ -1,0 +1,12 @@
+---
+title: "Paranın Gölgesinde Solan Kimlik: Türk Milletinin Gerçek Statüsü Ne Olmalı?"
+date: 2026-08-23T21:11:01+03:00
+draft: false
+
+---
+
+Tarık Çelenk'in kaleme aldığı "Para harcama kültürümüz ve statü" başlıklı yazı, modern dünyanın vazgeçilmez tartışma konularından biri olan tüketim, servet ve statü arayışı arasındaki karmaşık ilişkiyi ele alıyor. Ancak biz Türkçüler için bu mesele, sadece sosyo-ekonomik bir analizden ibaret değildir; doğrudan milli kimliğimizin, toplumsal değerlerimizin ve gelecek tasavvurumuzun bir yansımasıdır. Zira bir milletin neyi "statü" olarak gördüğü, onun neye değer verdiğini ve nereye doğru yürüdüğünü açıkça ortaya koyar.
+
+Bugün ne yazık ki, Türk toplumunda statü arayışının büyük ölçüde dışa dönük, ithal ve maddi ölçütlerle tanımlandığını gözlemlemekteyiz. En pahalı ithal ürünleri kullanmak, yabancı markalara öykünmek veya gösterişli bir yaşam tarzı sergilemek, birçok kişi için "başarı" ve "itibar" simgesi haline gelmiştir. Bu durum, yalnızca milli ekonomimizi zayıflatmakla kalmaz, aynı zamanda milletimizin özgün kültürel kodlarını ve değerlerini de yıpratır. Yabancıya özenme ve taklitçilik kültürü, Türk milletinin binlerce yıllık kadim geleneğinden ve özünden uzaklaşmasına neden olmakta, bireyin "ben" olmaktan çok "gibi görünme" çabasına odaklanmasına yol açmaktadır. Bu tür bir tüketim çılgınlığı, gerçek üretkenliği ve milli kalkınmayı arka plana iterken, toplumsal benliğimizde derin yaralar açmaktadır.
+
+Peki, Türk milletinin gerçek statüsü ne olmalıdır? Bizim için asil ve güçlü bir Türk olmanın nişanesi, asla paranın veya dışarıdan gelme bir imajın ardına saklanamaz. Gerçek statü, milli üretime katkıda bulunmakta, Türk dilini ve kültürünü yaşatmakta, bilimde, sanatta, sporda ve her alanda Türk’ün adını yüceltmekte yatar. Statü; alın teriyle kazanılmış başarı, milletine ve vatanına hizmet, öz güvenli bir duruş, atalardan gelen mirasa sahip çıkış ve geleceğe yönelik milli bir vizyon sahibi olmaktır. Türkçü şuur, bize tüketimin kölesi olmak yerine, üretimin efendisi olmayı; yabancı özentiliğinin peşinden koşmak yerine, Türk olmanın başlı başına bir değer ve en yüksek statü olduğunu öğretir. Unutulmamalıdır ki, Türk’e yaraşan görkem, dıştan ithal edilen ışıltılı nesnelerde değil, bizzat Türk’ün kendi ruhunda, karakterinde ve milli iradesinde mevcuttur. Milli onurumuzu ve öz kimliğimizi parayla ölçülemeyecek bir değer olarak görmeli, bu asil duruşu tüm dünyaya sergilemeliyiz.
