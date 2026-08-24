@@ -1,0 +1,12 @@
+---
+title: "Küresel Gerilimlerin Odağında: Türkiye İçin Milli Egemenlik Vurgusu"
+date: 2026-08-24T23:13:15+03:00
+draft: false
+
+---
+
+Küresel jeopolitiğin her geçen gün daha da karmaşıklaştığı bir dönemde, uluslararası ilişkilerdeki tansiyon yükselmeye devam ediyor. İngiltere'nin, Rusya'nın açık tehditlerine rağmen Ukrayna'ya olan desteğini sürdürme kararı, bu gerilimin yeni bir göstergesidir. Rusya'nın, İngiliz yapımı dronların Ukrayna tarafından kullanıldığı iddiaları üzerine sert "sonuçlar" uyarısı yapması, büyük güçler arasındaki vekalet savaşlarının ve meydan okumaların ne denli tehlikeli bir boyuta ulaştığını gözler önüne sermektedir. Bu tür gelişmeler, yalnızca taraflar arasında değil, tüm bölge ve dünya için belirsizlikleri artırmakta, istikrarsızlık riskini körüklemektedir. Türkiye, bu çalkantılı dönemde, olayları kendi milli menfaatleri çerçevesinde dikkatle okumak ve stratejik konumunu akıllıca değerlendirmek zorundadır.
+
+Bu tür küresel çekişmelerin Türkiye ve Türk coğrafyası üzerindeki potansiyel etkileri göz ardı edilemez. Başkalarının çıkar çatışmalarının, bölgemizi bir vekalet savaşı sahasına dönüştürme potansiyeli her zaman mevcuttur. Türkiye, bu senaryolara karşı caydırıcı bir güç olmak ve kendi güvenliğini mutlak surette sağlamak zorundadır. İngiliz dronlarının tartışması, aynı zamanda milli savunma sanayii ve teknolojik bağımsızlığın önemini bir kez daha vurgulamaktadır. Türkiye'nin, kendi göbeğini kendi kesen, dışa bağımlılığı en aza indiren bir savunma altyapısına sahip olması, bu tür krizlerdeki duruşunu güçlendiren en temel faktördür. Bizim için esas olan, ne bir tarafın ne de diğerinin piyonu olmak değil, bizzat kendi yol haritamızı çizmek ve dış politikada tam bağımsız bir duruş sergilemektir.
+
+Sonuç olarak, uluslararası sahnedeki bu tırmanışlar ve güç gösterileri, Türkiye için bir muhasebe ve uyanış vesilesi olmalıdır. Bölgemizi çevreleyen bu fırtınalı denizde, Türkiye'nin pusulası sadece ve sadece Türk milletinin yüksek menfaatlerini göstermelidir. Başkalarının tehditleri veya vaatleri üzerinden değil, kendi akıl ve birikimimizle, milli bir stratejiyle hareket etmeliyiz. Güçlü bir ordu, sağlam bir ekonomi, bağımsız bir dış politika ve milletin sarsılmaz birliği; Türkiye'nin bu jeopolitik meydan okumalara karşı duruşunun temel sütunlarıdır. Dijital Tamga olarak vurgulamak isteriz ki, Türk Devleti, Türk milletiyle birlikte, tarih boyunca olduğu gibi bugün de kendi onurlu ve egemen yolunda yürümeye devam edecektir. Geleceğimiz, kendi ellerimizdedir.
