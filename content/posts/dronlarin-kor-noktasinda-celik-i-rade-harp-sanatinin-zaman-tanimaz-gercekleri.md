@@ -1,0 +1,13 @@
+---
+title: "Dronların Kör Noktasında Çelik İrade: Harp Sanatının Zaman Tanımaz Gerçekleri"
+date: 2026-08-28T07:22:28+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2026/08/27/multimedia/27int-Ukraine-Zaphorizhia-Front-01-cwqf-promo/27int-Ukraine-Zaphorizhia-Front-01-cwqf-promo-mediumSquareAt3X.jpg"
+---
+
+Modern savaşlar genellikle havadan çekilen görüntüler, uydu istihbaratı ve yüksek teknolojili silah sistemleri üzerinden algılanır. Ancak Ukrayna cephesinden gelen son haberler, bu dijital perdenin ardında, harp sanatının en kadim ve en acımasız gerçeklerinin hala geçerli olduğunu gözler önüne seriyor. Üç yıl önce patlatılan bir barajın sularla kaplı, bitki örtüsüyle bürünmüş devasa havzasında Rus birlikleri sızma girişiminde bulunurken, Ukraynalı askerler onlara yakın mesafeden, adeta bir kedi-fare oyunu içinde cevap veriyor. Bu, dronların dahi göremediği, teknolojinin kör kaldığı bir bölgede, insan zekasının, cesaretinin ve hayatta kalma içgüdüsünün belirleyici olduğu, ilkel ancak bir o kadar da karmaşık bir mücadele.
+
+Bu çatışma alanı, modern savaşın en çetin ve en kişisel boyutunu temsil ediyor. Büyük stratejilerin, hava gücünün veya uzun menzilli füzelerin ötesinde, her bir askerin anlık kararlarının, fiziksel dayanıklılığının ve düşmanı alt etme iradesinin sahaya yansıdığı anlar bunlar. Baraj havzasının engebeli yapısı, sık bitki örtüsü ve su birikintileri, her iki taraf için de üstün bir keşif yeteneği, kamuflaj ustalığı ve sessiz ilerleme becerisi gerektiriyor. Bu durum, stratejik zekanın ve taktiksel üstünlüğün, en gelişmiş araçlardan bile daha kıymetli olduğunu kanıtlıyor. Askerlerin bireysel yetkinlikleri, liderlerinin inisiyatif alma kabiliyetleri ve kolektif mücadele ruhu, bu ölümcül oyunda zaferi veya mağlubiyeti tayin eden temel unsurlar olarak öne çıkıyor.
+
+Ukrayna’dan yansıyan bu çarpıcı gerçekler, bizlere milletlerin beka mücadelesinde sadece teknolojik üstünlüğün yeterli olmadığını bir kez daha hatırlatıyor. Coğrafyamızdaki potansiyel çatışma dinamikleri ve milli savunma stratejilerimiz açısından bu durum derslerle doludur. Geleceğin savaşları ne kadar teknolojik olursa olsun, insan faktörünün, yani çelik iradeli, stratejik düşünebilen, zorlu koşullara adapte olabilen ve vatan sevgisiyle donanmış evlatların değeri asla azalmayacaktır. Bu, milli ruhu diri tutmanın, ordumuzu sadece modern silahlarla değil, aynı zamanda en iyi eğitimli, en motive ve en kararlı bireylerle donatmanın hayati önemini bir kez daha vurgulayan bir uyarıdır. Türk milleti olarak, tarihimizden gelen bu savaşçı ruhu ve stratejik aklı modern çağın gereklilikleriyle birleştirerek, her türlü meydan okumaya hazır olmalıyız.
