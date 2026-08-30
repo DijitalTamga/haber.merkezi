@@ -1,0 +1,12 @@
+---
+title: "Türk'ün Söz Hakkı: Kimin Sesi Milletin Kalbinden Yükseliyor?"
+date: 2026-08-30T20:11:09+03:00
+draft: false
+
+---
+
+Mete Kaan Kaynar'ın "Sen kim oluyorsun?" başlıklı yazısıyla yeniden alevlenen tartışma, Cüneyt Özdemir özelinde söz hakkı, yurttaşlık ve demokrasi kavramlarını sorgularken, aslında çok daha derin bir meseleyi, yani Türk milletinin geleceğine ve kimliğine kimlerin yön verebileceği sorusunu gündeme getirmektedir. Bu tartışma, sadece iki isim arasındaki bir polemikten ibaret olmayıp, milletin vicdanında yankılanan "Kimdir bu toprağın gerçek sahibi, kimin sözü geçer?" sualinin çağdaş bir tezahürüdür. Her kim ki Türk milletinin egemenliğini, kültürel birliğini ve tarihsel mirasını yok saymaya kalkışırsa, ona bu soruyu sormak, her vatansever Türk'ün boynunun borcudur.
+
+Bir milletin "söz hakkı", basit bir hukuki vatandaşlık tanımının ötesinde, o milletin tarihiyle, kültürüyle ve ortak vicdanıyla kurduğu derin bağdan beslenir. Yurttaşlık belgesi taşımak, otomatik olarak millete yön verme veya onun değerlerini sorgulama yetkisi vermez. Gerçek söz hakkı, Türk milletinin binlerce yıllık yürüyüşüne, kahramanlıklarına, acılarına ve umutlarına kayıtsız şartsız sahip çıkan, bu topraklara aidiyet hissini damarlarında taşıyan her ferdin hakkıdır. Demokrasi, milli iradenin tecellisi ise, bu iradenin taşıyıcısı olan Türk'ün sesini boğmaya çalışan her türlü dayatmaya karşı durmak, milli varlığımızın teminatıdır. Türk'ün kimliğini sulandırmaya çalışan, dış mihrakların ağzıyla konuşan ve milletin öz değerlerine yabancılaşmış zihniyetler, "Sen kim oluyorsun?" sorusunun muhatabıdır.
+
+Bu bağlamda, "Sen kim oluyorsun?" sorusu, milletin ortak aklına, tarihine ve geleceğine kasteden her eylemin karşısına dikilen kutlu bir sestir. Türk milletinin varoluş mücadelesinde, bu coğrafyayı vatan yapan her bir canın emanetini taşıyanlar, ancak ve ancak Türk'ün yükselen sesine kulak verenlerdir. Milli birliğimize ve dirliğimize yönelik her türlü tehdide karşı durmak, Türkçü duruşun en temel prensibidir. Unutulmamalıdır ki, bu topraklar, Türk'ün kanıyla, teriyle ve azmiyle vatan kılınmıştır; üzerinde konuşacak, karar verecek ve geleceği şekillendirecek olan da kadim Türk milletinin kendisidir. Başkalarının ajandalarıyla, milletin aleyhine konuşanlara verilecek tek cevap bellidir: "Sen kim oluyorsun?" Bu ses, dün olduğu gibi bugün de Türk'ün istiklal ve istikbal mücadelesinin gür sedası olmaya devam edecektir.
