@@ -1,0 +1,13 @@
+---
+title: "Kuantum Çağında Türk'ün Yükselişi: Bilimle Mühürlenen Gelecek"
+date: 2026-08-30T22:58:39+03:00
+draft: false
+cover:
+    image: "https://image.hurimg.com/i/hurriyet/90/620x350/6a9020a77e0533a4eee0b2c5.jpg"
+---
+
+Bilim ve teknoloji, bir milletin bağımsızlığını koruma, egemenliğini pekiştirme ve küresel arenada hak ettiği yeri alma mücadelesinde vazgeçilmez bir kalkandır. İşte tam da bu anlayışla, TEKNOFEST kapsamında TÜBİTAK, Bilişim Vadisi ve ComPro yürütücülüğünde düzenlenen Kuantum Teknolojileri Yarışması, Türk milletinin geleceğe attığı stratejik ve kararlı adımlardan birini temsil etmektedir. Bu yarışma, sadece bir teknoloji etkinliği değil, aynı zamanda Türk gençliğinin zekasını ve azmini, ulusal hedeflerimiz doğrultusunda seferber etme iradesinin güçlü bir göstergesidir. Kuantum teknolojileri, savunmadan iletişime, sağlıktan enerjiye kadar birçok alanda paradigma değişimine yol açacak devrimsel bir güçtür. Bu alanda elde edilecek başarılar, ülkemizin yarınki jeopolitik konumunu doğrudan etkileyecektir.
+
+142 takım ve 535 katılımcının başvurusuyla başlayan, nihayetinde yazılım kategorisinde 10, donanım kategorisinde ise 8 takım olmak üzere toplamda 77 genç mühendis ve bilim insanının kıyasıya mücadele edeceği final etabı, Türk gençliğinin potansiyelini gözler önüne sermektedir. Yurt dışından gelen katılımcılar olsa da, bu platform öncelikle Türk zekasının, yaratıcılığının ve çözüm odaklı yaklaşımının bir vitrinidir. Gençlerimizin kuantum dünyasında ortaya koyacağı özgün fikirler ve geliştireceği çözümler, Türk bilim ve teknoloji haritasına kendi imzasını atacaktır. Her bir proje, Anadolu topraklarında yeşeren bir fikrin, Türk mühendisliğinin ve bilim ruhunun ürünü olarak, milletimizin ilim yolundaki kutlu yürüyüşüne güç katacaktır. Bu gençler, atalarının yüzyıllar boyunca ilme verdiği değeri, yeni çağın bilim damgasıyla taçlandırmanın heyecanını taşımaktadır.
+
+Kuantum teknolojilerindeki bu tür hamleler, Türk milletinin sadece geçmişte değil, gelecekte de dünyayı şekillendiren öncü güçlerden biri olma idealini beslemektedir. Bilime yatırım yapmak, teknoloji üretmek, kendi mühendis ve bilim insanlarımızı yetiştirmek; istiklali ve istikbali garanti altına almanın tek yoludur. Unutulmamalıdır ki, büyük milletler, geleceğini kendi elleriyle, kendi akıllarıyla inşa eder. Kuantum yarışması, bu kutlu inşa sürecinde atılan önemli bir adımdır. Türk'ün adı, bilim ve teknolojiyle yücelmeye devam edecektir. Kuantum çağında geleceğe vurulan bu Türk damgası, milletimizin yeni ufuklara yelken açtığının, Türk milletinin teknoloji ve bilim alanında da çağlara yön verme kararlılığının en güçlü işaretidir.
