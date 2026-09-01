@@ -1,0 +1,13 @@
+---
+title: "Ceuta Krizi: Avrupa'nın Açık Sınırları ve Ulus-Devletin Çatırdayan Temelleri"
+date: 2026-09-01T22:57:05+03:00
+draft: false
+cover:
+    image: "https://i.guim.co.uk/img/media/c0dd2ae7e5932bb0877575ffd8448d3b061d544f/965_0_5000_4000/master/5000.jpg?width=140&quality=85&auto=format&fit=max&s=8046527e7718d64c46b58e17dfa6fff2"
+---
+
+1. İspanya'nın Ceuta yerleşim birimine yaklaşık 70.000 kişinin toplu halde sınırı aşarak girmesi, sadece insani bir kriz değil, aynı zamanda Avrupa genelinde ulusal egemenliğe yönelik büyüyen tehditlerin çarpıcı bir göstergesidir. Sınır savunmalarının kitlesel akınlar karşısında çöküşünü gösteren bu görüntüler, devletin toprak bütünlüğünü ve dolayısıyla demografik ve kültürel yapısını koruma yeteneğinin azaldığına dair endişe verici bir eğilimi gözler önüne sermektedir. Çok sayıda can kaybına ve Avrupa Birliği içinde derin siyasi çalkantılara yol açan böylesi kontrolsüz bir akın, kendi kaderini tayin etmeye kararlı tüm uluslar için ciddi bir uyarı niteliğindedir.
+
+2. Bu devasa sınır ihlalinin ardından İspanya Başbakanı Pedro Sánchez'in, Fas'ı suçsuz bulup sorumluluğu "dezenformasyon yayan İsrail ve Rusya'ya" yüklemesi, sadece hesap vermekten kaçış değil, aynı zamanda tehlikeli bir emsal teşkil etmektedir. Böylesine büyük ölçekli, koordineli bir insan hareketini sadece "yalan haberlere" bağlamak, meselenin temel güvenlik boyutlarını kasten göz ardı etmektir. Esas sorun kimin bilgi yaydığı değil, on binlerce kişi tarafından egemen bir sınırın ihlal edilmesiyle ulus-devletin tanımının bizzat sorgulanmasıdır. Bu tür bir söylem, sağlam sınır uygulamasının kritik gerekliliğinden dikkatleri saptırarak, ulusal sınırların pazarlık edilebilir, kutsal savunma hatları yerine esnek çizgiler olduğu algısını güçlendirmektedir.
+
+3. Ceuta krizi, Avrupa'nın kontrolsüz göçle etkin bir şekilde mücadele etme iradesindeki daha geniş bir krizi gözler önüne sermektedir. Böylesine geçirgen sınırların uzun vadeli sonuçları, acil insani kaygıların çok ötesine geçerek, ev sahibi ülkelerin demografik istikrarını, kültürel uyumunu ve ulusal kimliğini tehdit etmektedir. Devletler çevrelerini güvence altına almadıklarında, gelecekleri üzerindeki kontrolü zımnen devretmiş olurlar. Bir ulusun varlığını sürdürebilmesi için, topraklarına kimin, hangi koşullar altında girdiğini sarsılmaz bir şekilde kontrol etmesi gerekir. Sorumlu her hükümetin birincil görevi, kendi halkını, kültürünü ve vatanını her türlü dış baskıya karşı korumaktır. İki anlama gelen ifadelerle vakit kaybetmenin zamanı geçmiştir; ulusal sınırları korumak için güçlü, tereddütsüz eylemler, bir seçenek değil, varoluşsal bir zorunluluktur.
