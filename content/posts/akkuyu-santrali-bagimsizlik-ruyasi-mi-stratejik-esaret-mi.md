@@ -1,0 +1,13 @@
+---
+title: "Akkuyu Santrali: Bağımsızlık Rüyası mı, Stratejik Esaret mi?"
+date: 2026-09-02T05:26:15+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2486000/cumhurbaskani-erdogan-putin-aa-2486268.jpg"
+---
+
+Cumhurbaşkanı Recep Tayyip Erdoğan'ın, Rusya Devlet Başkanı Vladimir Putin ile yaptığı görüşmede Akkuyu Nükleer Santrali'nin bitim dönemine girildiğini ve yeni santraller için adımlar atılacağını duyurması, Türk milleti için kritik bir enerji gelişmesi olarak kayıtlara geçmiştir. Enerji ihtiyacımızın giderilmesi ve ülke ekonomisinin can damarı olan enerji kaynaklarının çeşitlendirilmesi elbet önemlidir. Ancak, bir projenin milli değeri, yalnızca fiziksel varlığıyla değil, aynı zamanda ulusal egemenliğe ve tam bağımsızlık ülküsüne ne denli hizmet ettiğiyle ölçülür. Akkuyu projesi özelinde, sevincin yanına derin bir endişenin eşlik ettiği de göz ardı edilemez.
+
+Akkuyu Nükleer Santrali, maalesef, Türk mühendislerinin ve Türk sermayesinin eseri olmaktan çok uzaktır. Yatırımından inşaatına, işletmesinden teknolojisine ve hatta yakıt tedarikine kadar Rusya Federasyonu'nun kontrolünde olan bu yapı, ülkemizi stratejik bir enerji kaynağında tek bir dış güce bağımlı kılmaktadır. Uzun vadeli alım garantileri ve yüksek maliyet taahhütleriyle, Türk milletinin sırtına önemli bir ekonomik yük bindirilirken, milli teknoloji ve bilgi transferi konularında yeterli atılımların yapılamaması büyük bir eksikliktir. Milli enerji politikası, kendi kaynaklarımızı, kendi insanımızla, kendi bilgi birikimimizle değerlendirme üzerine kurulmalıdır. Akkuyu modeli ise bu ilkenin tam tersi bir görünüm sunmaktadır. Kritik bir altyapının kontrolünü tamamen yabancı bir devlete bırakmak, dış politikada ve ulusal güvenlikte ciddi zafiyetler yaratır, yarınlarımızı ipotek altına alır.
+
+Gerçek enerji bağımsızlığı, yalnızca santral sahibi olmakla değil, o santrali kuracak, işletecek ve geliştirecek milli kadrolara ve milli teknolojiye sahip olmakla mümkündür. Türk gençliği, Türk mühendisleri, Türk bilim insanları, gerekli imkanlar sağlandığında bu kapasiteye fazlasıyla sahiptir. Yeter ki siyasi irade, dışa bağımlılık yerine milli özgüveni ve yatırımı tercih etsin, milletimizin kaynaklarını kendi öz evlatlarımızın geleceği için kullansın. Türkiye, kendi nükleer enerjisini kendi imkanlarıyla üretecek, kendi kadrolarıyla işletecek bir vizyona ve güce sahip olmalıdır. Bu, sadece ekonomik bir tercih değil, aynı zamanda milli onurumuzun ve gelecekteki tam bağımsızlığımızın olmazsa olmaz şartıdır. Egemenliğimizden zerre ödün vermeden, büyük Türk milletinin adil ve bağımsız geleceğini inşa etmek, en temel vazifemizdir.
