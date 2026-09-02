@@ -1,0 +1,13 @@
+---
+title: "Bölgedeki Büyük Satranç: Türk'ün Milli Durumu ve Dış Güçlerin Çatışması"
+date: 2026-09-02T06:34:41+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/09/02/116/0/3820/1910/644/322/60/0/48a7e64_ftp-1-eomyjqmltwhz-2026-09-02t000256z-1554206488-rc2nanat6p7u-rtrmadp-3-iran-crisis-usa-strikes.JPG"
+---
+
+Ortadoğu coğrafyası, yeni bir gerilim dalgasıyla çalkalanıyor. Amerika Birleşik Devletleri'nin İran'ı hedef alan ikinci saldırı dalgasına karşılık, İran Devrim Muhafızları'nın Ürdün, Irak ve Bahreyn'deki Amerikan üslerine gerçekleştirdiği misillemeler, bölgedeki hassas dengeleri bir kez daha altüst etti. Bu karşılıklı hamleler, çatışmanın boyutunu genişletme potansiyeli taşıyor ve zaten kırılgan olan bölgeyi daha büyük bir istikrarsızlığa sürüklüyor. İran Cumhurbaşkanı Pezeshkian'ın müzakere çağrısı, bu askeri misillemelerin gölgesinde, sahadaki gerçeklikten uzak bir siyasi jestten öteye gidemiyor.
+
+Bu olaylar, bölgenin ne yazık ki uzun yıllardır maruz kaldığı dış müdahalelerin ve güç savaşlarının yeni bir tezahürüdür. Amerika ve İran arasındaki bu gerilim, özünde bir Türk-Türkmen meselesi değil, iki farklı gücün bölge üzerindeki hegemonya mücadelesidir. Ancak bu mücadelenin yaşandığı coğrafyaların büyük bir kısmı, Türk dünyasının tarihsel ve kültürel izlerini taşıyan, stratejik öneme sahip topraklardır. Irak ve Suriye gibi komşu ülkelerdeki istikrarsızlık, doğrudan Türkiye'nin milli güvenliğini tehdit etmektedir. Bu tür çatışmalar, sınırlarımızda yeni terör yapılanmalarına, göç dalgalarına ve ekonomik darbelere zemin hazırlama potansiyeli taşır. Bölgedeki her ateş, bize uzak görünse de, rüzgarıyla dumanını mutlaka bize taşır. Bu çatışmaların ideolojik veya dini boyutları olsa dahi, Türk milleti olarak bizim için önemli olan, bu güç oyunlarının ülkemize ve milletimize olası etkileridir.
+
+Türkiye, bu karmaşık jeopolitik satranç tahtasında tarafsızlığını korumalı, ancak ulusal çıkarlarını korumak adına proaktif bir duruş sergilemelidir. Kendi askeri gücümüzü ve caydırıcılığımızı sürekli artırmak, sınırlarımızın güvenliğini mutlak surette sağlamak ve bölgesel meselelerde kendi bağımsız yolumuzu çizmek hayati öneme sahiptir. Ne Amerika'nın ne de İran'ın bölge vizyonları, Türk milletinin bin yıllık devlet geleneği ve geleceğe dönük hedefleriyle tam olarak örtüşmez. Türk'ün beka mücadelesi, bu tür dış kaynaklı gerilimlerden etkilenmeden, kendi yolunda kararlılıkla ilerlemeyi gerektirir. Milletimiz, geçmişin derslerinden aldığı tecrübeyle, coğrafyasındaki her gelişmeyi dikkatle izlemeli ve büyük Türk milletinin menfaatleri doğrultusunda hareket etmelidir. Uyanık olmak, güçlü olmak ve kendi kaderini tayin etmek, Türk'ün bu bölgedeki yegane stratejisi olmalıdır.
