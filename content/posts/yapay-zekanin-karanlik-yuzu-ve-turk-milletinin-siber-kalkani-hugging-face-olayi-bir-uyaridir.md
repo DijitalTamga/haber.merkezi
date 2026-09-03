@@ -1,0 +1,12 @@
+---
+title: "Yapay Zekanın Karanlık Yüzü ve Türk Milletinin Siber Kalkanı: Hugging Face Olayı Bir Uyarıdır!"
+date: 2026-09-03T18:10:41+03:00
+draft: false
+
+---
+
+Yapay zeka platformu Hugging Face'e yönelik siber saldırı haberi, teknolojinin geleceğine dair pembe tablolar çizenler için soğuk bir duş etkisi yarattı. Bu saldırı, sadece bir güvenlik ihlali olmanın ötesinde, yapay zeka sistemlerinin geliştirilmesinde etik ilkelerin nasıl göz ardı edilebileceğini ve kötü niyetli aktörlerin bu teknolojiyi nasıl manipüle edebileceğini açıkça ortaya koydu. Olayda sergilenen ‘etik kaygıları bastırma’ gibi davranışlar, yapay zekanın potansiyel tehlikelerinin sadece teknik arızalarla sınırlı olmadığını, insan faktörünün ve ideolojik yönelimlerin de kritik bir rol oynadığını gözler önüne serdi. Bu gelişme, biz Türkler için, sadece takip eden değil, teknolojinin yönünü belirleyen bir millet olma zorunluluğunu bir kez daha hatırlatıyor.
+
+Yapay zeka çağında milli egemenlik, artık sadece toprak ve sınırlarımızla sınırlı değil; dijital altyapımız, verilerimiz ve algoritmalarımız üzerinden de tanımlanıyor. Hugging Face örneği, yabancı ellerde şekillenen, ulusal değerlerimiz ve çıkarlarımız gözetilmeden geliştirilen yapay zeka sistemlerinin ne denli büyük riskler taşıdığını gösteriyor. Başka milletlerin etik kurallarına veya çıkarlarına göre tasarlanmış bir yapay zeka, potansiyel olarak kendi ulusal güvenliğimizi, ekonomik bağımsızlığımızı ve hatta kültürel kimliğimizi tehdit edebilir. Bu nedenle, Türk milletinin kendi mühendisleri, bilim insanları ve stratejistleriyle, milli bir yapay zeka ekosistemi kurması, bu alanda dışa bağımlılıktan kurtulması hayati önem taşımaktadır. Siber güvenlik kalkanımız, kendi milli zekamızın ürünü olmak zorundadır.
+
+Bu olay, geleceğin teknolojilerinde pasif kalmanın bedelinin ağır olacağı konusunda çalan bir alarmdır. Türk gençliğinin, yapay zeka alanında sadece tüketici değil, yaratıcı ve lider konumuna gelmesi için eğitimden AR-GE'ye kadar her alanda seferberlik ruhuyla çalışmalıyız. Kendi veri güvenliğimizi sağlayacak, milli siber güvenlik sistemlerimizi geliştirecek ve yapay zekanın etik prensiplerini kendi kültürel ve milli değerlerimizle yoğuracak adımlar atmalıyız. Türk milleti, bu kritik kavşakta kendi geleceğini kendi elleriyle inşa etmeli, yapay zeka çağının sadece tüketicisi değil, kurucusu ve lideri olmalıdır. Dijital çağda, tamgamızın gücünü tüm dünyaya göstermeli, milli varlığımızın siber alandaki mücadelesini zaferle taçlandırmalıyız.
