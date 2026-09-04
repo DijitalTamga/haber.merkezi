@@ -1,0 +1,13 @@
+---
+title: "Sivas Ruhu: Türk Yüzyılı'nın Gerçek Rotası ve Ölçütü"
+date: 2026-09-04T10:24:54+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2468000/erdogan-aa-2469001.jpg"
+---
+
+1.  Sivas Kongresi, Türk milleti için yalnızca bir dönemeç değil, varoluş mücadelesinin en kritik mihenk taşlarından biridir. Mustafa Kemal Atatürk liderliğinde, dört bir yandan sarılmış, yok olmanın eşiğine getirilmiş bir milletin, kendi öz toprağında hür ve bağımsız yaşama iradesini tüm dünyaya haykırdığı bir kuruluştur. Anadolu'nun farklı cephelerinden gelen milli güçlerin "müşterek bir ideal etrafında birleşmesi," aslında Türk varlığının, ortak bir kimlik ve kader bilinciyle kenetlenmesinden başka bir şey değildir. Bu ideal, emperyalist dayatmalara karşı dik duruşun, manda ve himaye kabul etmeyişin, Türk'ün kendi geleceğine kendisi yön verme azminin en net ifadesidir. Sivas'ta atılan her adım, Türk milletinin sarsılmaz bağımsızlık karakterini, öz egemenliğini ve ulusal kimliğini tescillemiştir.
+
+2.  Bugün "Türkiye Yüzyılı" hedefinden bahsedilirken, Sivas Kongresi ruhunun motivasyon kaynağı olarak gösterilmesi, bu tarihi mirasın değerini anlama çabasını yansıtır. Ancak asıl mesele, bu ruhu sadece bir söylem veya nostaljik bir anı olarak değil, yeni yüzyıl vizyonunun temel ve değiştirilemez prensibi olarak kavramaktır. Sivas Ruhu, Türk milletinin kendi özgücüne dayanarak, hiçbir dış gücün veya ideolojinin etkisinde kalmadan, kendi çıkarlarını mutlak öncelik kabul ederek ilerlemesidir. Bu ruh, Türk kimliğinin ve değerlerinin, evrenselleşme adı altında erozyona uğratılmasına karşı uyanık olmayı, Türk dilinin ve kültürünün korunmasını, kısacası Türk varlığının yüceltilmesini gerektirir. Eğer "Türkiye Yüzyılı" Türk'ün yüzyılı olacaksa, bu yüzyılın mimarisi, Sivas'taki o tavizsiz milli duruşun üzerine inşa edilmelidir.
+
+3.  Söz konusu hedefi gerçeğe dönüştürmek, sadece güçlü bir ekonomi ya da askeri kapasite inşa etmekle sınırlı değildir. Asıl zorluk ve gerçek başarı, Sivas Kongresi'nde somutlaşan milli iradenin, yani Türk milletinin özgün kimliğinin, bağımsızlık aşkının ve hürriyet idealinin günümüz politikalarında da belirleyici unsur olmasını sağlamaktır. Bu demektir ki, her alanda Türk'e özgü çözümler üretilmeli, Türk milleti merkeze alınmalı ve tüm politikalar Türk'ün refahı, gelişimi ve egemenliği için hayata geçirilmelidir. Sivas Ruhu, bize sadece bir direnme değil, aynı zamanda milli hedefler doğrultusunda birleşme, kendi öz değerlerimize dönme ve geleceği bu sağlam temeller üzerine kurma çağrısı yapar. "Türkiye Yüzyılı" iddiası, ancak Sivas'ın arı ve duru Türk milliyetçiliğiyle gerçek anlamını bulacak, aksi takdirde içi boş bir slogandan öteye geçemeyecektir.
