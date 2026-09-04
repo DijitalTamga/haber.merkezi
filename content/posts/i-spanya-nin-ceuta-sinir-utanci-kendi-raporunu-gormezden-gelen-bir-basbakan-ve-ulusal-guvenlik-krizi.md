@@ -1,0 +1,13 @@
+---
+title: "İspanya'nın Ceuta Sınır Utancı: Kendi Raporunu Görmezden Gelen Bir Başbakan ve Ulusal Güvenlik Krizi"
+date: 2026-09-04T20:40:04+03:00
+draft: false
+cover:
+    image: "https://i.guim.co.uk/img/media/be4269b2ddb583217b97a8b9039e26613d47630f/706_0_4809_3847/master/4809.jpg?width=140&quality=85&auto=format&fit=max&s=ae6e8feb2df1eddc8ebb88b2371abda1"
+---
+
+İspanya Başbakanı Pedro Sánchez'in, ülkesinin Kuzey Afrika'daki toprağı Ceuta'ya yönelik yaşanan büyük sınır ihlalinde Fas'ın hiçbir rolü olmadığına dair "kesinlikle hiçbir kanıt görmediği" yönündeki açıklamaları, ulusal güvenlik ve egemenlik anlayışımız açısından ibretlik bir vaka teşkil etmektedir. Bu açıklama, bir yargıç tarafından görevlendirilen ve Fas sınır güçlerinin Temmuz sonunda yaklaşık 70.000 kişinin sınırı geçmesine aktif olarak yardım ettiğini iddia eden polis raporunun ortaya çıkmasının hemen ardından gelmiştir. Kendi güvenlik birimlerinin tespitlerini yok sayan bir hükümet tutumu, yalnızca bir dış politika meselesi olmaktan öte, bir milletin varlığını ve geleceğini tehdit eden ciddi bir iç meseleye dönüşmektedir.
+
+Polis raporunun iddiaları, basit bir "sınır ihlali"nin çok ötesinde, planlı ve destekli bir insan akınının varlığını işaret etmektedir. Bir komşu ülkenin, bir diğerinin toprak bütünlüğüne ve demografik yapısına bu denli büyük bir kitlesel geçişle müdahale etmesi, uluslararası ilişkilerde kabul edilemez bir düşmanca eylemdir. 70.000 kişinin organize bir şekilde bir ülkenin sınırlarından içeri sızdırılması, sadece güvenlik zafiyeti değil, aynı zamanda o ülkenin egemenliğine ve ulusal kimliğine yönelik doğrudan bir tehdittir. Bu ölçekteki bir olay karşısında, devletin en tepesinden gelen "kanıt yok" savunması, ya durumun ciddiyetini kavrayamamak ya da siyasi çıkarlar uğruna ulusal menfaatlerden taviz vermek anlamına gelir ki, her iki durum da bir millet için büyük felaketlere gebedir.
+
+Bir milletin vatanı, sınırlarıyla çevrili kutsal topraklardır. Bu sınırların korunması, devletin varlık sebebidir ve hiçbir siyasi mülahaza ile pazarlık konusu yapılamaz. İspanya örneğinde görüldüğü gibi, dışarıdan organize edilen kitle hareketlerine göz yummak veya bunları inkâr etmek, uzun vadede ülkenin demografik yapısını, sosyal dokusunu ve kültürel birliğini geri dönülmez biçimde tahrip edecektir. Her Türkçü, devletlerin en temel görevlerinden birinin, milletinin ırki ve kültürel bütünlüğünü korumak olduğunun bilincindedir. Ceuta'da yaşananlar, dünya genelinde ulus-devletlerin karşı karşıya kaldığı büyük göç baskısının ve bu baskı karşısında liderlerin sergilediği zafiyetin acı bir örneğidir. Türk milleti, kendi vatanının ve kimliğinin korunmasında her zaman en yüksek hassasiyeti göstermeli, bu tür tehditlere karşı daima uyanık ve kararlı olmalıdır.
