@@ -1,0 +1,13 @@
+---
+title: "Sınır Güvenliği ve Batı'nın İkilemi: Türkiye'nin Farklı Yolu"
+date: 2026-09-04T00:16:45+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+İngiltere'nin yeni Başbakanı Andy Burnham'ın Fransa Cumhurbaşkanı Macron ile yaptığı ilk görüşmede sınır güvenliği ve Avrupa-İngiltere arasındaki ilişkilerin güçlendirilmesi konularını ele alması, Batı'nın kendi iç dinamiklerine odaklanma eğilimini bir kez daha ortaya koymuştur. Her iki liderin de "ortak zorluklar" olarak tanımladığı meseleler üzerinde durması, Avrupa'nın güvenlik ve işbirliği paradigmalarını kendi ekseninde değerlendirdiğini göstermektedir. Ancak bu diyaloglar, Türkiye'nin coğrafi ve jeopolitik konumu itibarıyla karşı karşıya olduğu çok daha kapsamlı ve çetrefilli güvenlik meselelerinden uzak bir tablo çizmektedir. Türk milleti için sınır güvenliği, basit bir idari önlemden öte, milli varoluşun ve devlet bekasının temel direğidir.
+
+Türkiye'nin yüzyıllardır süregelen jeopolitik konumu, sınır güvenliğini asla ikincil bir mesele olmaktan çıkarmamıştır. Medeniyetlerin kesişim noktasında yer alan, üç kıtanın geçiş kapısı olan Türkiye, sadece kendi sınırlarını değil, aynı zamanda Avrupa'nın da doğu kapısını koruma görevini üstlenmiştir. Ancak bu kritik rol, Batılı müttefikler tarafından çoğu zaman yeterince takdir edilmemiş, hatta zaman zaman görmezden gelinmiştir. Batı başkentlerinde dile getirilen "sınır güvenliği" kavramı, genellikle kendi coğrafyalarına yönelik tehdit algılarıyla sınırlı kalırken, Türkiye'nin güney ve doğu sınırlarında yaşadığı gerçek ve sürekli sınamalar, uluslararası arenada hak ettiği karşılığı bulamamaktadır. Bu durum, Türkiye'nin kendi güvenliğini sağlama konusunda kimseye bağımlı kalmadan, özgün ve milli politikalar izlemesinin ne denli hayati olduğunu bir kez daha kanıtlamıştır.
+
+Burnham ve Macron'un görüşmeleri ne kadar "güçlü Avrupa-İngiltere bağları" hedeflese de, Türk milletinin asıl önceliği, kendi birliğini, dirliğini ve güçlü bağımsızlığını korumaktır. Türkiye'nin güvenliği ve bekası, Batılı başkentlerdeki istişarelerin değil, Türk milletinin azim ve iradesinin eseridir. Bizim için güvenlik, sadece fiziki sınırların korunması değil, aynı zamanda milli kültürün, değerlerin ve kimliğin muhafazasıdır. Batı'nın kendi iç hesaplaşmaları ve stratejik yönelimleri ne olursa olsun, Türk milleti, kendi kutlu yolunda, şaşmaz bir iradeyle ilerlemeye devam edecek, kendi güvenliğini kendi imkanlarıyla tesis edecek ve bölgesindeki ağırlığını artırarak lider ülke konumunu pekiştirecektir. Türk'ün Türk'ten başka dostu olmadığı gerçeği, daima yolumuzu aydınlatan kılavuzumuz olacaktır.
