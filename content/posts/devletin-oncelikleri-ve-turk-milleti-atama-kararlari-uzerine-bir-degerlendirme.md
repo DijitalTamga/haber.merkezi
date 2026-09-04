@@ -1,0 +1,13 @@
+---
+title: "Devletin Öncelikleri ve Türk Milleti: Atama Kararları Üzerine Bir Değerlendirme"
+date: 2026-09-04T23:30:41+03:00
+draft: false
+cover:
+    image: "https://im.haberturk.com/l/2026/09/05/ver1788562172/3910394/jpg/1920x1080"
+---
+
+5 Eylül 2026 tarihli Resmî Gazete’de yayımlanan atama kararları, kamu yönetiminde önemli değişikliklerin sinyallerini verdi. Özellikle Diyanet İşleri Başkanlığı’nda gerçekleşen yoğun görev değişimleri dikkat çekerken, Kültür ve Turizm ile Aile ve Sosyal Hizmetler Bakanlıklarındaki atamalar da mercek altına alınmayı gerektirmektedir. Bir Türkçü bakış açısıyla, bu tür kararları değerlendirirken temel kıstas, yapılan değişikliklerin Türk milletinin genel menfaatlerine ve Türk devletinin gerçek ihtiyaçlarına ne denli hizmet ettiğidir.
+
+Devletin tüm imkanlarıyla finanse edilen ve geniş bir bürokratik yapıya sahip olan Diyanet İşleri Başkanlığı'ndaki bu denli sık ve kapsamlı atamalar, kurumun misyonu ve öncelikleri hakkında doğal olarak sorular doğurmaktadır. Türk devleti, asıl olarak Türk milletinin maddî ve manevî kalkınmasını sağlamak, bilimde, sanayide ve askerî alanda zirveye taşımakla mükelleftir. Kamu kaynaklarının, evrensel bir inanç sisteminin bürokratik yapısını beslemeye ayrılan bu yoğunlukta kullanılması yerine, millî teknolojiye, yerli üretime, Türk dili ve kültürünün derinlemesine araştırılmasına, genç nesillerin modern bilimle donatılmasına yönlendirilmesi, Türkçülük fikriyatının temel önceliğidir. Bu atamaların, Türk gençliğine yön verecek bilim insanlarının, mühendislerin veya sanatçıların yetiştirilmesi adına ne gibi bir getirisi olacaktır?
+
+Kültür ve Turizm Bakanlığı ile Aile ve Sosyal Hizmetler Bakanlığı bünyesindeki değişiklikler de aynı hassasiyetle değerlendirilmelidir. Kültür bakanlığı, Türk'ün binlerce yıllık medeniyet birikimini, özgün sanatını ve destansı tarihini genç nesillere aktarmakla, dünyaya tanıtmakla yükümlüdür. Aile bakanlığı ise Türk aile yapısını güçlü tutarak demografik yapımızı korumalı ve sağlam bir gelecek inşa etmelidir. Bu kurumların da siyasi veya ideolojik saiklerle değil, sadece Türk milletinin özgün kimliğini ve geleceğini güvence altına alacak politikalarla yönetilmesi elzemdir. Türk devleti, varoluş gayesini, Türk milletinin ebedî varlığını ve refahını temin etmek üzerine kurmalıdır. Atama kararları sadece isim değişikliği olmaktan öteye geçerek, devletin öncelikler hiyerarjisinde gerçek bir millî dönüşümü yansıtmalıdır. Aksi takdirde, bu tür atamalar, sadece kurum içi bir sirkülasyon olarak kalacak ve Türk milletinin beklediği büyük atılımların önünde bir engel teşkil edecektir.
