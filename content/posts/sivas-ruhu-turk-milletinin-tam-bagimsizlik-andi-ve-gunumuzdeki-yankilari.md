@@ -1,0 +1,13 @@
+---
+title: "Sivas Ruhu: Türk Milletinin Tam Bağımsızlık Andı ve Günümüzdeki Yankıları"
+date: 2026-09-05T01:42:56+03:00
+draft: false
+cover:
+    image: "https://image.hurimg.com/i/hurriyet/90/620x350/6a9b502f9f5dc92a38feeeda.jpg"
+---
+
+1. Türk milletinin en karanlık günlerinde dahi boyun eğmediğinin, kendi kaderini tayin etme iradesini ortaya koyduğunun en güçlü kanıtlarından biri olan Sivas Kongresi, 107 yıl önce bugün, yurdun dört bir yanından gelen Türk evlatlarını bir araya getirerek bağımsızlık meşalesini harlamıştır. Bu kutlu toplantı, bir yanda işgalci güçlerin, diğer yanda vatan topraklarını bölmeye çalışan iç ve dış odakların tehdidi altındaki bir millete adeta can suyu olmuş, Türk'ün sarsılmaz iradesini tüm dünyaya haykırmıştır. Cumhurbaşkanı Erdoğan'ın yıldönümü mesajında kongrenin önemine dikkat çekmesi, bu tarihi dönüm noktasının milli hafızadaki yerini bir kez daha hatırlatmıştır. Ancak bizler için Sivas, sadece anılması gereken bir tarih sayfası değil, günümüze ışık tutan, yol gösteren bir manifestodur.
+
+2. Sivas Kongresi'nin temel ilkesi "Manda ve himaye kabul edilemez!" cümlesiyle özetlenen tam bağımsızlıktır. Bu ilke, sadece siyasi bir duruş değil, aynı zamanda Türk milletinin onur ve haysiyetini koruma kararlılığıdır. Kongre kararları, vatanın bir bütün olduğunu, bölünmezliğini ve Türk milletinin kendi egemenliğini kayıtsız şartsız kullanacağını vurgulamıştır. Sivas, Türk milliyetçiliğinin en saf ve en özgün haliyle ortaya çıktığı, etnik ya da mezhepsel ayrımların ötesinde, ortak bir "Türk milleti" bilinciyle hareket edildiği bir dönüm noktasıdır. Hiçbir dış gücün ya da iç mihrakın, Türk'ün kendi geleceğini tayin etme hakkına müdahale edemeyeceği, bu kutlu mecliste net bir biçimde ilan edilmiştir. Bu, sıradan bir toplantı değil, çelikleşen bir milli iradenin ve sarsılmaz bir Türkçü duruşun en belirgin tezahürüdür.
+
+3. Günümüz Türkiye'sinde Sivas ruhunu anlamak ve yaşatmak, her zamankinden daha hayati bir önem taşımaktadır. Zira bağımsızlık mücadeleleri, sadece silahla değil, ekonomik, kültürel ve siyasal alanlarda da devam eden çetin bir süreçtir. Sivas'ın bize öğrettiği ders, Türk milletinin kendi öz kaynaklarına güvenerek, kendi değerlerine sahip çıkarak ve milli menfaatleri her şeyin üstünde tutarak var olabileceğidir. Her türlü dış bağımlılığa, yabancı tesire ve iç ayrıştırıcı politikalara karşı, Sivas'ın tam bağımsızlık ve milli birlik şiarını pusula edinmek, Türk devletinin ve milletinin geleceğini güvence altına almanın tek yoludur. Sivas Kongresi, yalnızca geçmişten bir yankı değil, Türk'ün geleceğini şekillendirecek milli uyanışın ve daima diri kalması gereken bağımsızlık ülküsünün sönmeyen ateşidir.
