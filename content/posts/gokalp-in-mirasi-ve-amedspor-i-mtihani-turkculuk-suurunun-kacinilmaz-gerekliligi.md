@@ -1,0 +1,12 @@
+---
+title: "Gökalp'in Mirası ve Amedspor İmtihanı: Türkçülük Şuurunun Kaçınılmaz Gerekliliği"
+date: 2026-09-06T05:16:53+03:00
+draft: false
+
+---
+
+Cevat Düşün'ün kaleminden yansıyan Amedspor meselesi, basit bir spor tartışmasının çok ötesinde, Türk milletinin temel birlik ve beraberlik meselelerine ayna tutan bir turnusol kâğıdı niteliğindedir. Toplumsal barış adı altında, milli kimliğimizi ve kültürel bütünlüğümüzü erozyona uğratabilecek her türlü yaklaşım, bu topraklarda yüz yıldır ilmek ilmek örülen milli şuurun sorgulanmasına yol açmaktadır. Bu tür meseleler, ulusal varlığımızın dayandığı kültürel ve siyasi temellerin sağlamlığını bir kez daha düşünmeye sevk eder; çünkü milli birlik, sıradan bir kavram olmaktan öte, devletin ve milletin bekasının güvencesidir.
+
+Ziya Gökalp'in "Türklük şuuru" mefhumu, Türk milletinin kültürel birliğini, ortak değerlerini ve devletin bölünmez bütünlüğünü temel alan, akılcı ve kuşatıcı bir milli kimlik anlayışını ifade eder. Bu şuur, milletin geçmişten geleceğe uzanan varoluş çizgisini, dilini, tarihini ve kültürünü tek bir potada eriterek yüceltir. Ne var ki, günümüzde bu güçlü irfandan yoksun, kimi zaman bilgisizlikten, kimi zaman da farklı saiklerle sergilenen bir "Türkçülük şuursuzluğu" tablosuyla karşılaşmaktayız. Bu şuursuzluk, milli menfaatlerin doğru tahlil edilememesine, birlikteliği bozacak unsurlara karşı gerekli tepkinin gösterilememesine veya aksine, bu unsurların meşrulaşmasına zemin hazırlayarak, devletimizin ve milletimizin çelikten iradesini zayıflatma potansiyeli taşır.
+
+Amedspor etrafında dönen tartışmalar ve belirli şahsiyetlerin bu konudaki tavırları, milli şuuru eksik bir yaklaşımın neticelerini açıkça gözler önüne sermektedir. Bir spor kulübünün milli birlik ve kardeşlik ruhuna aykırı, bölücü semboller veya söylemlerle anılmasına sessiz kalmak ya da bunu "toplumsal barış" adına hoş görmek, Gökalp'in öğrettiği Türkçülük şuuruna taban tabana zıttır. Gerçek "toplumsal barış" ve "milli birlik," ancak milletin ortak değerlerine, vatanın bütünlüğüne ve şanlı tarihimize tereddütsüz sahip çıkmakla mümkündür. Dijital Tamga olarak altını çizdiğimiz gibi, bu şuursuzluğa prim vermek yerine, Ziya Gökalp'in miras bıraktığı milli şuurla hareket etmeli, Türk milletinin birliğini ve bekasını tehdit eden her türlü ayrılıkçı söyleme ve eyleme karşı dimdik durmalıyız. Geleceğimiz, ancak bu sağlam temel üzerinde yükselebilir.
