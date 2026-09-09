@@ -1,0 +1,12 @@
+---
+title: "Sessizliğin Dili: Soyut Birliklerin İflası ve Türk'ün Gerçek Yolu"
+date: 2026-09-09T21:20:32+03:00
+draft: false
+
+---
+
+Gazze ve Batı Şeria'da yaşanan insanlık dramı, uluslararası kamuoyunda yankı bulmaya devam ediyor. Haberlerde belirtildiği üzere, bölgedeki katliam ve etnik temizlik hazırlığına karşı İngiltere ve Fransa dahil 12 Batılı ülke, İsrail'e yaptırım kararı alırken, Tel Aviv'in hamisi ABD dahi bu eleştirilere sessiz kaldı. Bu durum, uluslararası ilişkilerin pragmatik ve çıkarlar üzerine kurulu yapısını bir kez daha gözler önüne seriyor. Ancak, haberin altını çizdiği en çarpıcı nokta, tüm bu gelişmeler karşısında "İslam dünyası" olarak nitelenen geniş coğrafyadan tek bir itirazın, tek bir sesin yükselmemiş olmasıdır. Bu sessizlik, sadece bir duyarsızlık değil, aynı zamanda uzun yıllardır dillendirilen soyut birlik söylemlerinin acı bir iflasıdır.
+
+Bu durum, biz Türk milliyetçileri için yeni bir gözlem değildir; aksine, yıllardır dile getirdiğimiz rasyonel gerçeklerin bir teyididir. "İslam birliği" veya "ümmet" gibi romantik ve gerçeklikten uzak söylemlerin, devletler ve milletler arasındaki gerçek çıkarlar çatışmasında ne kadar işlevsiz olduğunu bu örnek acı bir şekilde kanıtlamaktadır. Her devlet, kendi ulusal menfaatleri, kendi ekonomisi, kendi stratejik öncelikleri doğrultusunda hareket eder. Din veya etnik köken gibi soyut paydalar, bu gerçekçi politikaların karşısında çoğu zaman ikincil kalır. Haberdeki "İslam dünyası"nın sessizliği, aslında coğrafi ve kültürel olarak dağınık, kendi içinde çıkar çatışmaları yaşayan, her biri kendi varlık kaygısıyla boğuşan devletlerin bir araya gelme kapasitesinin ne kadar zayıf olduğunu göstermektedir.
+
+Türk milleti, kendi tarihsel tecrübeleri ve devlet geleneği ile bilir ki, milli varoluşun yegâne temeli kendi öz gücüdür. Başka milletlerin ya da coğrafyaların sorunlarına çözüm ararken bile, önceliğimiz daima kendi milli menfaatlerimiz, kendi devletimizin bekası ve kendi milletimizin refahı olmalıdır. Boş hayaller ve soyut birlik arayışları peşinde koşmak, Türk'ün enerjisini ve kaynaklarını heba etmekten başka bir işe yaramaz. Dijital Tamga olarak daima vurguladığımız gibi; Türk'ün yolu, kendi tarihi misyonuna uygun, rasyonel devlet aklıyla çizilmiş, milli çıkar eksenli ve güçlü bir milli iradeye dayanan yoldur. Başkalarından medet ummak değil, kendi gücümüzle yükselmek mecburiyetindeyiz. Bu sessizlik, bize bir kez daha bu vazgeçilmez gerçeği hatırlatmaktadır.
