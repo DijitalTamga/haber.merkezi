@@ -1,0 +1,13 @@
+---
+title: "Egemenlik Savaşı: İsrail'in Britanya'ya Karşı Adımı ve Devletlerin Çıkar Çatışması"
+date: 2026-09-09T12:39:24+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Uluslararası siyaset arenası, devletlerin egemenlikleri ve ulusal çıkarları doğrultusunda verdikleri mücadelenin daimi sahnesidir. Son gelişmeler, Birleşik Krallık'ın İsrail'e uyguladığı yaptırımlara karşı İsrail'in dört maddelik bir misilleme paketiyle yanıt vermesiyle bu gerçeği bir kez daha gözler önüne sermiştir. Bu karşı tedbirler arasında Doğu Kudüs'teki İngiliz konsolosluğunun kapatılması gibi doğrudan ve sembolik değeri yüksek bir adım da bulunmaktadır. Bu olay, devletlerin uluslararası baskıya karşı kendi iradelerini nasıl ortaya koyduklarını ve ulusal çıkarlarını koruma adına nasıl cüretkar kararlar alabildiklerini net bir biçimde göstermektedir.
+
+Tarihin derinliklerinden günümüze dek, Batılı güçlerin Ortadoğu coğrafyasındaki nüfuz mücadelesi ve bu bölgeyi kendi stratejik hedefleri doğrultusunda şekillendirme çabaları bilinen bir gerçektir. Birleşik Krallık'ın yaptırım kararı da bu çerçevede, diplomatik ve ekonomik baskı yoluyla bir devlet üzerinde etkide bulunma isteğinin bir yansıması olarak okunabilir. Ancak İsrail'in yanıtı, bu tür dış müdahalelere karşı verilen net bir egemenlik ilanıdır. Doğu Kudüs'teki bir konsolosluğun kapatılması, sadece diplomatik bir karar değil, aynı zamanda dışarıdan gelen her türlü dayatmaya karşı kendi iç işlerindeki kontrolünü pekiştirme ve kendi politik hattını belirleme yönünde güçlü bir mesajdır. Bu hamle, her devletin kendi kaderini tayin etme ve ulusal onurunu koruma hakkının bir tezahürüdür.
+
+Bu tür olaylar, bağımsız ve güçlü bir devlet olma hedefi güden her millet için önemli dersler barındırmaktadır. Uluslararası sistemde zayıf devletler, dışarıdan gelen baskılara boyun eğmek zorunda kalırken, kendi gücüne ve iradesine güvenenler, ulusal çıkarlarını korumak adına gerekli adımları atmaktan çekinmezler. Türkiye Cumhuriyeti de kendi bölgesel ve küresel çıkarlarını korurken, dışarıdan gelebilecek her türlü baskıya karşı milli iradesini ve egemenliğini kararlılıkla savunmalıdır. Başka devletlerin atışmalarını sadece bir dış haber olarak görmek yerine, devletler arası ilişkilerin doğasına dair önemli bir emsal teşkil ettiğini anlamak ve bu perspektifle kendi politikalarımızı gözden geçirmek, milli menfaatlerimiz açısından hayati önem taşımaktadır. Unutulmamalıdır ki uluslararası arenada kalıcı dostluklar değil, kalıcı çıkarlar vardır; ve bu çıkarları korumanın yolu, güçlü bir duruş ve tavizsiz bir egemenlik anlayışından geçer.
