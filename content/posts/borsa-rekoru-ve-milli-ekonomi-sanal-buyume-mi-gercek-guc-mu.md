@@ -1,0 +1,13 @@
+---
+title: "Borsa Rekoru ve Milli Ekonomi: Sanal Büyüme Mi, Gerçek Güç Mü?"
+date: 2026-09-09T23:37:17+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2392000/borsa-istanbul-aa-2392319.jpg"
+---
+
+1.  Borsa İstanbul'da son işlem gününde BIST 100 endeksi %0,70 değer kazanarak 14.505,48 puana yükseldi ve tam 328,6 milyar liralık rekor bir işlem hacmiyle tüm zamanların zirvesine ulaştı. Bu nominal büyüklük, ilk bakışta finans piyasalarında bir hareketlilik ve canlılık sinyali olarak algılanabilir. Ancak Türk Milleti'nin gerçek refahı ve ekonomik bağımsızlığı perspektifinden bakıldığında, bu tür "rekor" haberlerinin altında yatan gerçekleri daha rasyonel ve derinlemesine değerlendirmek zorunluluktur. Bir milletin ekonomik gücü, yalnızca spekülatif piyasalardaki rakamlarla ölçülemez; asıl gösterge, üretim kapasitesi, milli servetin korunması ve bireylerin alım gücüdür.
+
+2.  Ulaşılan bu "rekor" işlem hacmi, Türk lirasının son dönemde yaşadığı değer kaybı ve genel ekonomik tablodaki yüksek enflasyonist ortamla birlikte ele alındığında, gerçek mahiyetini daha net ortaya koymaktadır. Nominal olarak milyarlarca liralık bir işlem hacmine ulaşılmış olması, liramızın satın alma gücündeki erime göz önüne alındığında, geçmiş yıllardaki çok daha düşük nominal hacimlerin ifade ettiği gerçek değeri yakalamakta yetersiz kalabilir. Bu durum, sermayenin enflasyondan korunmak amacıyla alternatif yatırım araçlarına yönelmesinin bir yansımasıdır ve kağıt üzerindeki bu artış, çoğu zaman yeni bir zenginlik yaratmaktan ziyade, mevcut servetin erimesini durdurma çabasını işaret eder. Milli ekonominin asıl gücü, finansal piyasaların dalgalanmalarında değil; fabrikalarımızda dönen çarklarda, tarım topraklarımızdan fışkıran verimde ve ihraç ettiğimiz katma değerli ürünlerdedir.
+
+3.  Türk ekonomisinin gerçek anlamda bağımsız ve güçlü olabilmesi, borsadaki anlık rekorlardan ziyade, milli üretimin ve milli servetin artırılmasına odaklanarak inşa edilmelidir. Kısa vadeli sermaye hareketlerine ve yabancı etkisine açık bir yapı yerine, Türk girişimcisinin ve üreticisinin desteklendiği, yerli ve milli üretimin teşvik edildiği, teknolojik bağımsızlığın hedeflendiği bir ekonomi modeli benimsenmelidir. Liramızın değerinin korunması, enflasyonla kararlı bir mücadele ve kaynakların spekülatif kazançlar yerine doğrudan üretime yönlendirilmesi, Türk Milleti'nin geleceği için vazgeçilmezdir. Gerçek ekonomik bağımsızlık, milli güçle beslenen, istikrarlı ve sürdürülebilir bir büyüme ile mümkündür; finansal piyasaların iniş çıkışlarıyla değil. Odak noktamız, sanal rakamlar yerine somut ve milli kalkınma olmalıdır.
