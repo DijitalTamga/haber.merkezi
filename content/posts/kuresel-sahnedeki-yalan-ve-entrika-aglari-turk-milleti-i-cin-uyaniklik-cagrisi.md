@@ -1,0 +1,13 @@
+---
+title: "Küresel Sahnedeki Yalan ve Entrika Ağları: Türk Milleti İçin Uyanıklık Çağrısı"
+date: 2026-09-10T23:31:31+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2026/09/10/multimedia/10int-russia-uk-1-pvqt/10int-russia-uk-1-pvqt-mediumSquareAt3X.jpg"
+---
+
+1.  Dünya siyaset sahnesi, her geçen gün daha karmaşık ve belirsiz bir hal almaktadır. Son günlerde uluslararası basına yansıyan bir gelişme, bu karmaşıklığın ve büyük güçler arasındaki mücadelenin vahim boyutlarını bir kez daha gözler önüne serdi. Moskova, Ukrayna'yı Rusya ile Birleşik Krallık arasında bir çatışmayı körüklemekle suçlarken, Londra bu iddiaları Rusya'nın dezenformasyon kampanyasının bir parçası olarak niteledi. Bu karşılıklı suçlamalar, uluslararası ilişkilerde güvenin ne denli kırılgan olduğunu ve enformasyonun bir savaş aracı olarak nasıl kullanıldığını net bir şekilde ortaya koymaktadır. İddiaların doğru olup olmadığı bir yana, bu tür söylemlerin kendisi dahi mevcut gerilimi tırmandırmakta ve kutuplaşmayı derinleştirmektedir.
+
+2.  Bu tür gelişmeler, modern çağın "enformasyon savaşları" gerçeğini gözler önüne sermektedir. Dezenformasyon, sadece rakibi karalamakla kalmaz, aynı zamanda hedef alınan ülkelerin iç bütünlüğünü zayıflatmayı, uluslararası ittifaklarını bölmeyi ve kamuoyunu manipüle etmeyi hedefler. Büyük güçler, kendi jeopolitik çıkarları doğrultusunda bu tür araçları pervasızca kullanarak, adeta bir satranç tahtasında piyonları hareket ettirir gibi ulusları yönlendirmeye çalışmaktadır. Bu durum, dünya üzerinde barış ve istikrar arayışlarını sekteye uğratırken, küçük veya orta büyüklükteki devletleri, kendilerini bu girdabın içinde savunmasız bulma riskiyle karşı karşıya bırakmaktadır. Her iddia, her haber, ardında farklı bir niyeti ve çıkarı gizleyebilir.
+
+3.  Türk milleti olarak bu tablo karşısında, uyanıklığımızı ve milli bilincimizi en üst düzeyde tutmak zorundayız. Küresel güç odaklarının yalan ve entrika ağlarına karşı en büyük kalkanımız, sarsılmaz bir milli birlik, sağlam bir özgüven ve milli menfaatlerimizi önceliklendiren bağımsız bir dış politika anlayışıdır. Başkalarının çizdiği senaryolara, yaydığı dezenformasyonlara aldanmadan, kendi aklımızla ve vicdanımızla doğruyu yanlıştan ayırma yeteneğimizi her daim geliştirmeliyiz. Türkiye, bölgede ve dünyada güçlü bir aktör olarak varlığını sürdürmek istiyorsa, bu tür enformasyon savaşlarına karşı sadece pasif bir gözlemci değil, kendi doğrularını ve gerçeklerini dünyaya duyurabilen, manipülasyona kapalı bir duruş sergileyen bir devlet geleneğine sahip olmalıdır. Geleceğimiz, bu uyanıklık ve bağımsızlık ruhunda yatmaktadır.
