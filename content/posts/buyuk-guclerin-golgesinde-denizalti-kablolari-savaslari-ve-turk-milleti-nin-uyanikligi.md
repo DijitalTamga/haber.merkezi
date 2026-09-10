@@ -1,0 +1,13 @@
+---
+title: "Büyük Güçlerin Gölgesinde: Denizaltı Kabloları Savaşları ve Türk Milleti'nin Uyanıklığı"
+date: 2026-09-10T11:55:55+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/09/10/318/0/3822/1911/644/322/60/0/6afa51a_upload-1-jdaau2bllnys-000-76vf9t3.jpg"
+---
+
+Arktik sularından gelen haber, uluslararası arenadaki stratejik rekabetin geldiği tehlikeli boyutu bir kez daha gözler önüne serdi. NATO tarafından engellendiği duyurulan Rusya'nın denizaltı kablolarını hedef alan sabotaj tatbikatı, yalnızca uzak bir coğrafyada cereyan eden lokal bir olay değil, tüm dünyanın, dolayısıyla Türk milletinin de yakından takip etmesi gereken küresel bir uyarıdır. İngiltere, Norveç ve ABD'nin müdahalesiyle açığa çıkan bu gizli faaliyet, sivil ve askeri iletişimin omurgasını oluşturan denizaltı kablolarının artık açık bir hedef haline geldiğini göstermektedir. İz bırakmadan kritik altyapıyı etkisiz hale getirme kabiliyeti arayışı, gelecekteki çatışmaların sadece yüzeyde değil, okyanusların derinliklerinde de cereyan edeceğinin güçlü bir işaretidir.
+
+Denizaltı kabloları, modern dünyanın dijital yaşam damarıdır. İnternet trafiğinin %99'undan fazlasını taşıyan bu kılcal damarlar, küresel ticaretin, finansal işlemlerin, devletler arası iletişimin ve askeri komuta kontrol sistemlerinin kesintisiz işlemesi için vazgeçilmezdir. Bu kablolara yönelik herhangi bir sabotaj, bölgesel veya küresel çapta ekonomik kaosa, bilgi akışının felç olmasına ve hatta uluslararası gerilimlerin kontrolden çıkmasına yol açabilir. Türkiye, jeopolitik konumu itibarıyla Doğu ile Batı arasında köprü vazifesi gören, kendi deniz yetki alanlarından önemli denizaltı kablolarının geçtiği bir ülkedir. Bu durum, Arktik'teki bir sabotaj girişiminin bile Türk milletinin stratejik menfaatleri açısından dolaylı ama önemli sonuçlar doğurabileceği gerçeğini ortaya koyar.
+
+Büyük güçlerin, kendi jeopolitik hesaplaşmaları uğruna bu denli kritik küresel altyapıyı hedef alması, Türkiye gibi stratejik konumdaki ülkeler için ciddi bir ders niteliğindedir. Türk milleti, kendi bilgi ve iletişim teknolojileri altyapısının güvenliğini mutlak bir öncelik olarak ele almalı, siber ve denizaltı kablo güvenliği konusunda bağımsızlığını güçlendirmelidir. Kendi milli imkanlarımızla bu tür tehditleri tespit ve bertaraf edebilecek kabiliyetler geliştirmek, ulusal egemenliğimizin ve ekonomik istikrarımızın temelidir. Geleceğin savaşları siber uzayda ve okyanusların altında şekillenirken, Türk aklının uyanık kalması, kendi savunma ve caydırıcılık kapasitesini sürekli geliştirmesi, büyük güçlerin yıkıcı oyunlarına karşı en güçlü kalkanımız olacaktır.
