@@ -1,0 +1,13 @@
+---
+title: "Bab'ül Mendep'teki Tehlike: Türk Milleti İçin Küresel Ticaret Yollarının Önemi ve Stratejik Uyanıklık"
+date: 2026-09-11T18:49:43+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2026/09/11/multimedia/11yemen-cpvm/11yemen-cpvm-mediumSquareAt3X.jpg"
+---
+
+İran destekli Husi milislerinin Kızıldeniz'de, dünya deniz ticaretinin kilit noktalarından biri olan Bab'ül Mendep Boğazı yakınlarındaki stratejik bir adayı ele geçirmesi, küresel güvenlik ve enerji rotaları açısından yeni bir endişe kaynağı oluşturmuştur. Bu gelişme, hali hazırda gerilimle boğuşan bölgede var olan istikrarsızlığı daha da derinleştirirken, dünya ekonomisini ve özellikle enerji tedarik zincirlerini doğrudan tehdit etmektedir. Kızıldeniz ve Süveyş Kanalı bağlantısı, Avrupa ile Asya arasındaki en kısa deniz ticaret yolunu teşkil etmekte olup, küresel petrol ve doğal gaz sevkiyatının önemli bir bölümü bu güzergah üzerinden yapılmaktadır.
+
+Bab'ül Mendep, küresel ticaretin ve enerji taşımacılığının vazgeçilmez düğüm noktalarından biridir. Bu boğazın kontrol altına alınması veya güvenliğinin tehlikeye girmesi, sadece bölge ülkelerini değil, tüm dünyayı etkileyecek ekonomik ve stratejik sonuçlar doğurma potansiyeli taşımaktadır. Denizyolu ticaretinin aksaması, tedarik zincirlerinde maliyet artışlarına, enerji fiyatlarında dalgalanmalara ve nihayetinde küresel ekonomik büyümeye olumsuz yansımalara yol açabilir. Bu tür gelişmeler, uluslararası güç dengelerini etkileyen ve devletlerin milli güvenlik stratejilerini yeniden gözden geçirmesini gerektiren kritik kırılma anlarıdır.
+
+Türk milleti olarak, bu tür jeopolitik değişimleri ve küresel ticaret rotalarındaki tehditleri yakından takip etmek, milli menfaatlerimiz açısından hayati öneme sahiptir. Türkiye, üç tarafı denizlerle çevrili ve Asya ile Avrupa arasında stratejik bir köprü konumunda olan bir denizci millettir. Karadeniz, Marmara, Ege ve Akdeniz'deki hakimiyetimiz kadar, küresel deniz ticaretinin güvenliği ve istikrarı da dolaylı olarak ekonomik refahımızı ve stratejik pozisyonumuzu etkilemektedir. Dünya denizlerindeki her türlü istikrarsızlık, küresel tedarik zincirlerini aksatmak suretiyle enerji güvenliğimizi ve ekonomik bağımsızlığımızı tehdit edebilir. Bu nedenle, Türk devleti ve milleti olarak, sadece kendi yakın çevremizde değil, dünya coğrafyasındaki stratejik öneme sahip deniz yollarında da gelişmeleri dikkatle izlemeli, güçlü ve bağımsız dış politikamızla olası risklere karşı hazırlıklı olmalı ve denizlerdeki etki alanımızı güçlendirerek milli menfaatlerimizi koruma kararlılığımızı sürdürmeliyiz. Çağımız, güçlü bir donanmaya ve akılcı bir denizcilik stratejisine sahip olmanın, milletlerin bekası için ne denli elzem olduğunu bir kez daha kanıtlamaktadır.
