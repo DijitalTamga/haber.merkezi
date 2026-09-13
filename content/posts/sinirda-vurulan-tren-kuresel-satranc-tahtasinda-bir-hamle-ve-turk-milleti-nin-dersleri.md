@@ -1,0 +1,12 @@
+---
+title: "Sınırda Vurulan Tren: Küresel Satranç Tahtasında Bir Hamle ve Türk Milleti'nin Dersleri"
+date: 2026-09-13T23:43:57+03:00
+draft: false
+
+---
+
+Rusya'nın Polonya sınırına yakın bir Ukrayna trenine yönelik gerçekleştirdiği saldırı, eski İngiltere Başbakanı Boris Johnson ve üst düzey Avrupalı yetkililerin bölgeden ayrılmasından kısa bir süre sonra vuku buldu. Johnson'ın "Putin'i bu tür bir eyleme iten çarpık mantığı anlamıyorum" şeklindeki tepkisi, uluslararası kamuoyunda yankı bulurken, bu saldırı sadece bir hedef vurmaktan öte, mevcut küresel güç dengeleri ve jeopolitik mesajlaşmalar açısından derin anlamlar taşımaktadır. Sıradan bir trenin hedef alınması, aslında Batı'ya ve müttefiklerine yönelik açık bir gözdağı niteliğindedir; bir devletin, başka bir devletin topraklarında, diplomatik ziyaretlerin hemen ardından dahi pervasızca hareket edebileceğinin ürkütücü bir göstergesidir.
+
+Bu olay, Doğu Avrupa'da süregelen gerilimin ve büyük güçlerin kendi çıkarları uğruna bölgeyi bir çatışma alanına dönüştürme eğilimlerinin acımasız bir yansımasıdır. Batılı liderlerin ziyareti, Ukrayna'ya verilen desteğin sembolik bir göstergesi iken, Rusya'nın zamanlamayı ustaca seçerek bu ziyarete adeta bir "yanıt" vermesi, uluslararası diplomasinin sınırlarını zorlayan, tehlikeli bir meydan okumadır. Bu tür eylemler, yalnızca Ukrayna'nın egemenliğini değil, aynı zamanda uluslararası hukukun ve istikrarın temel prensiplerini de ihlal etmektedir. Böylesi bir pervasızlık, bölgesel gerilimi tırmandırma potansiyeli taşırken, dünya genelinde devletler arası ilişkilerde güven ve öngörülebilirliğin erozyonuna da katkıda bulunmaktadır.
+
+Türk milleti olarak, böylesi bir "küresel satranç tahtası"nda sergilenen hamleleri dikkatle ve rasyonel bir gözle takip etmek zorundayız. Bu olay, bize bir kez daha, güçlü ve bağımsız bir ulusal politika izlemenin, kendi ayaklarımız üzerinde durmanın ve hiçbir yabancı gücün siyasi ya da askeri entrikalarına alet olmamanın hayati önemini hatırlatmaktadır. Bölgesel istikrarsızlık ve çatışmalar, doğrudan veya dolaylı olarak ülkemizi de etkileme potansiyeli taşımaktadır. Bu nedenle, Türkiye'nin kendi ulusal menfaatlerini mutlak öncelik addederek, stratejik zekayla hareket etmesi, caydırıcı bir savunma gücüne sahip olması ve bölgesinde dengeleyici bir güç rolünü sürdürmesi elzemdir. Başkalarının "çarpık mantıklarını" anlamaya çalışmak yerine, kendi milli aklımızla, Türk'ün çıkarlarını teminat altına alacak adımlar atmalıyız.
