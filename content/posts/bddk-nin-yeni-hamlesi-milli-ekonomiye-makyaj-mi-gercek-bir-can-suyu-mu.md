@@ -1,0 +1,13 @@
+---
+title: "BDDK'nın Yeni Hamlesi: Milli Ekonomiye Makyaj mı, Gerçek Bir Can Suyu mu?"
+date: 2026-09-17T13:52:07+03:00
+draft: false
+cover:
+    image: "https://image.dunya.com/rcman/Cw1280h720q95gc/storage/files/images/2026/09/17/yeni-proje-2025-03-21t095705-iqzb_cover.jpg"
+---
+
+BDDK'nın halka açık bankaların hisse geri alım işlemlerine getirdiği yeni düzenleme, finans çevrelerinde geniş yankı buldu. 16 Eylül sonrası geri alınan payların yıl sonuna kadar çekirdek sermayeden düşülmemesi ve risk hesaplamaları dışında tutulması, bankacılık sektöründeki sermaye yükünü hafifletme amacı taşıyor. İlk bakışta bankaların bilançolarına nefes aldıran bu adım, Türk ekonomisinin uzun vadeli çıkarları ve milli sermayenin gerçek gücü açısından daha derinlemesine bir irdelemeyi gerektiriyor. Bu karar, mevcut finansal göstergeleri rahatlatırken, Türk milletinin topyekûn ekonomik refahına ne ölçüde hizmet edecektir?
+
+Ekonomik istikrar, rakamsal makyajlarla değil, sağlam üretim temelleri ve milli sermayenin doğru yönlendirilmesiyle inşa edilir. BDDK'nın bu hamlesi, bankaların kendi hisselerini geri almasını kolaylaştırarak sermaye yeterliliği rasyolarını kağıt üzerinde iyileştirebilir. Ancak bu durum, bankaların elde ettiği sermayenin reel ekonomiye, üretime ve istihdama dönüşmesini ne kadar teşvik ediyor? Yoksa daha çok, finansal piyasalardaki dalgalanmaları ve sermaye erozyonunu geçici olarak perdelemeye mi yarıyor? Türkçülük perspektifiyle baktığımızda, milli bankacılık sistemimiz, ülkenin kaynaklarını spekülatif hamleler yerine, tarımdan sanayiye, teknolojiden altyapıya kadar her alanda gerçek üretimi ve milli bağımsızlığı güçlendirecek projelere aktarmalıdır. Aksi takdirde, bu tür "hafifletici" önlemler, uzun vadede ulusal ekonomimizi daha kırılgan hale getirebilir.
+
+Türk ekonomisinin geleceği, günü kurtaran finansal manevralarla değil, köklü yapısal reformlar ve milli kalkınma hedefleriyle şekillenmelidir. BDDK'nın bu kararı, bankalara bir miktar esneklik sağlarken, esas mesele, bu esnekliğin Türk milletinin ortak çıkarına nasıl dönüştürüleceğidir. Gerçek bir güçlenme, bankaların karlarını maksimize etmesinden ziyade, Türk girişimcisini desteklemesi, milli sanayiye ucuz ve uzun vadeli kredi sağlaması, böylece istihdamı artırıp ülkenin dışa bağımlılığını azaltmasıyla mümkündür. Dijital Tamga olarak çağrımız açık: Milli ekonomimizin temellerini güçlendiren, üretim odaklı, şeffaf ve her Türk ferdinin refahına hizmet eden politikalar ivedilikle hayata geçirilmelidir. Kağıt üzerindeki başarılar yerine, tarlalarda, fabrikalarda ve araştırma laboratuvarlarında elde edilen gerçek değerlerle yükselen bir Türkiye idealimizdir.
