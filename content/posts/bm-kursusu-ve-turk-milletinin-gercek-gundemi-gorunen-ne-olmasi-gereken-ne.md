@@ -1,0 +1,13 @@
+---
+title: "BM Kürsüsü ve Türk Milletinin Gerçek Gündemi: Görünen Ne, Olması Gereken Ne?"
+date: 2026-09-20T02:02:46+03:00
+draft: false
+cover:
+    image: "https://image.dunya.com/rcman/Cw1280h720q95gc/storage/files/images/2026/09/19/ert-6nxo_cover.jpg"
+---
+
+Cumhurbaşkanı Erdoğan'ın Birleşmiş Milletler Genel Kurulu'nda bir kez daha kürsüye çıkacak olması, her diplomatik ziyaret gibi dikkatleri üzerine çekiyor. Ancak Türkçü bakış açısıyla sorulması gereken temel soru şudur: Bu tür uluslararası platformlar, Türk milletinin gerçek ve kalıcı menfaatlerine ne ölçüde hizmet etmektedir? Kuruluş amacı her ne olursa olsun, Birleşmiş Milletler gibi yapılar, çoğu zaman güçlü devletlerin etkileşim ve kendi çıkarlarını dayatma aracı haline gelebilmektedir. Türk milleti için asıl önemli olan, bu küresel arenada sadece görünür olmak değil, kendi bağımsız duruşunu ve milli egemenliğini koşulsuz biçimde savunabilmektir. Bu ziyaretler, bir 'vitrin' olmaktan öte, somut bir milli kazanım sağlayacak mı, yoksa sadece bir uluslararası ritüelin parçası mı olacaktır?
+
+Sıkça rastladığımız üzere, BM gibi platformlardaki konuşmalar ve diplomatik temaslar, çoğu zaman içi boş retorik ve iyi niyet beyanlarından ibaret kalmaktadır. Türk milleti olarak, küresel sorunlara 'ortak çözüm' arayışlarının ötesinde, kendi özgün problemlerimize ve potansiyelimize odaklanmalıyız. Ekonomik bağımsızlık, bilim ve teknolojide atılım, güçlü ve caydırıcı bir ordu, gençliğimizin milli şuurla donatılması gibi iç dinamiklerimiz, dış ilişkilerimizden çok daha belirleyicidir. Unutulmamalıdır ki, gerçek güç ve saygınlık, uluslararası platformlarda yapılan uzun konuşmalardan değil, bizzat kendi topraklarımızda ürettiğimiz değerlerden ve tavizsiz milli duruşumuzdan beslenir. Başka milletlerin bize biçtiği rolü oynamak yerine, kendi kaderimizi kendi ellerimizle şekillendirmeliyiz.
+
+Türkçü bir perspektiften, bu ziyaretin asıl gündeminin "Türk"ün ve "Türkiye"nin jeopolitik çıkarlarını ve kültürel değerlerini ön planda tutmak olması beklenir. Ancak pratikte ne kadarının gerçekleştiği sorgulanmalıdır. Bizim için öncelik, küresel "adil düzen" çağrıları yapmak değil, Türk dünyasıyla bağlarımızı güçlendirmek, Türk kimliğini ve kültürünü yüceltmek, Türk milletini her alanda bağımsız ve güçlü kılmaktır. Uluslararası toplantılar, bu büyük hedefin bir aracı olmalı, asla nihai hedefi haline gelmemelidir. Türk milletinin geleceği, kendi iradesi ve azmiyle inşa edilecek olup, bu tür uluslararası sahneler sadece birer figüranlık değil, milli iradenin yansıtıldığı ve tavizsiz bir duruşun sergilendiği mecralar olmalıdır. Aksi takdirde, bu tür ziyaretler sadece zaman ve kaynak israfından öteye geçmeyecektir.
