@@ -1,0 +1,12 @@
+---
+title: "Dizel Diplomasisi ve Egemenlik İkilemi: Türk Milleti Kendi Rotasını Çizmeli"
+date: 2026-09-21T15:25:04+03:00
+draft: false
+
+---
+
+Küresel siyaset sahnesinde perdenin arkasındaki gerçekler bir kez daha gün yüzüne çıktı. Eski ABD Başkanı Donald Trump'ın Ukrayna lideri Zelenskyy'ye Rus rafinerilerine yönelik saldırıları durdurması yönünde baskı yaptığı ve bu durumun "dizel, dizel, dizel" anahtar kelimeleriyle özetlendiği iddia edildi. Bu haber, uluslararası ilişkilerin çoğu zaman ideallerden çok, ham ekonomik ve stratejik çıkarlar üzerine kurulu olduğunu acı bir şekilde ortaya koymaktadır. Bir tarafta sözde uluslararası hukuk ve bağımsızlık söylemleri dolaşırken, diğer yanda enerji piyasaları ve büyük güçlerin küresel tedarik zincirleri üzerindeki kontrol arzusu, çatışmaların gidişatını doğrudan etkileyebilmektedir.
+
+Bu tür gelişmeler, Türk milleti için önemli dersler barındırmaktadır. Başka bir devletin, egemen bir ulusun askeri stratejilerine doğrudan müdahale etme cüretini göstermesi, uluslararası sistemdeki güç dengesizliklerinin ve bağımlılıkların vahim bir göstergesidir. Türkiye olarak biz, tarihimiz boyunca büyük güçlerin çekişme alanı olmuş, ancak her zaman kendi varoluş mücadelesini vermiş bir milletiz. Böylesi bir ortamda, Türk milletinin bekası ve refahı ancak tam bağımsızlık ilkesine sıkı sıkıya bağlı kalarak, milli menfaatlerimizi Doğu'nun veya Batı'nın dayatmalarına feda etmeden kendi politikalarımızı belirlemekle mümkündür. Karadeniz ve çevresindeki jeopolitik gerilimler, enerji güvenliği ve bölgesel istikrar, Türkiye için hayati öneme sahiptir ve bu dinamikler, dış güçlerin manipülasyonlarına karşı uyanık olmayı zorunlu kılar.
+
+Unutulmamalıdır ki, bir milletin kaderini dış mihrakların çizdiği sınırlar içinde aramak gaflettir. Türk milleti, kendi öz gücüne, iradesine ve stratejik vizyonuna dayanarak bölgesinde ve dünyada hak ettiği yeri almalıdır. Ekonomik bağımsızlık, güçlü bir ordu ve sağlam bir milli birlik, bu yolda atılacak en temel adımlardır. Kendi enerji kaynaklarımızı çeşitlendirmekten, savunma sanayimizi güçlendirmeye; kültürel birliğimizi pekiştirmekten, uluslararası diplomaside kararlı bir duruş sergilemeye kadar her alanda milli kimliğimizle var olmalıyız. Geleceğin Türk dünyasının aydınlık yüzü olması için, her türlü dış müdahaleye karşı dimdik ayakta durmalı ve sadece Türk milletinin yüksek menfaatlerini gözeterek, kendi rotamızı cesaretle çizmeliyiz.
