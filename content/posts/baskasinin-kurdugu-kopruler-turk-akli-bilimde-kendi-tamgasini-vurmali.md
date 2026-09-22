@@ -1,0 +1,13 @@
+---
+title: "Başkasının Kurduğu Köprüler: Türk Aklı Bilimde Kendi Tamgasını Vurmalı!"
+date: 2026-09-22T13:10:02+03:00
+draft: false
+cover:
+    image: "https://cdn.webrazzi.com/uploads/2025/10/openai-dev-679.png"
+---
+
+Yapay zeka teknolojilerindeki baş döndürücü gelişmeler, insanlığın geleceğini yeniden şekillendirirken, bu devrimin kalbinde matematik biliminin yadsınamaz bir yeri olduğu her geçen gün daha net anlaşılmaktadır. Dünyanın önde gelen yapay zeka şirketlerinden OpenAI'ın, modellerinin matematik alanındaki çalışmalarını derinlemesine değerlendirmek üzere bağımsız bir danışma grubu kurması, bu stratejik önemin somut bir göstergesidir. Princeton'daki Institute for Advanced Study gibi köklü bir bilim kurumunun çatısı altında faaliyet gösterecek bu oluşum, sadece bir teknik detay değil, aynı zamanda geleceğin dijital medeniyetinin temel taşlarını döşeyen küresel aktörlerin, bilimsel liderlik yarışındaki konumlanışlarını belirleyen kritik bir adımdır.
+
+Bu tür gelişmeler karşısında Türk milleti olarak kendimize sormamız gereken temel soru şudur: Kendi tamgamızı vurmuş, bir zamanlar bilimin ve aklın meşalesini taşımış bir ecdadın torunları olarak, bu yeni çağın inşasında nerede duruyoruz? Biruni'den Uluğ Bey'e uzanan köklü matematik ve astronomi geleneğiyle insanlık tarihine damga vuran Türk aklı, bugün küresel teknoloji ve bilim yarışında sadece izleyici mi kalacak? Başka milletlerin kurduğu bu köprüleri sadece kullanmak, onların bilimsel önderliğini kabul etmek anlamına gelir ki bu, Türk'ün bağımsızlık ve hürriyet tasavvuruna aykırıdır. Bilimde başkasına bağımlı olmak, gelecekte stratejik bağımsızlığını da kaybetmek demektir. Kendi özgün düşünce ve üretim kapasitemizi geliştirmedikçe, dijital çağın sadece tüketicisi olmaya mahkûm kalırız.
+
+Türk milleti olarak bu yeni döneme sadece seyirci kalmak değil, aktif birer kurucu ve yön verici aktör olmak zorundayız. Bunun yolu, milli bilim ve teknoloji politikalarını sadece slogan düzeyinde değil, somut yatırımlar ve vizyoner projelerle desteklemekten geçiyor. En başta, matematik ve temel bilimlere olan ilgiyi yeniden alevlendirmeli, genç beyinlerimizi bu alanlara yönlendirmeliyiz. Kendi bilimsel danışma kurullarımızı, kendi yapay zeka araştırma merkezlerimizi kurmalı, Türk mühendisleri ve bilim insanlarının önünü açmalıyız. İlim ve irfan, milletlerin varlık mücadelesinde en keskin kılıç, en sağlam kalkandır. Geleceğin Türk milletinin, çağdaş medeniyetin sadece bir parçası değil, bizzat mimarı olması için, her bir Türk bireyi bilimin ve aklın yolunda ilerlemeli, bu büyük milli sorumluluğun farkında olmalıdır. Kendi bilim tamgamızı vurarak, kutlu ceddimizden aldığımız mirası, dijital çağın zirvelerine taşımak boynumuzun borcudur!
