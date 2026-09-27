@@ -1,0 +1,12 @@
+---
+title: "Ateşkes Gölgesinde Yeni Gerilim: Ortadoğu'da Bitmeyen Çatışma Sarmalı ve Türkçü Bakış"
+date: 2026-09-27T21:43:29+03:00
+draft: false
+
+---
+
+İsrail'in, güney Lübnan'da Mayfadoun yakınlarındaki bir ticaret merkezine düzenlediği helikopter saldırısı, bölgedeki kırılgan barış umutlarını bir kez daha paramparça etmiştir. Üstelik bu saldırı, ilan edilen ateşkesin devamına rağmen gerçekleşmiş olmasıyla, uluslararası hukuk ve bölgesel anlaşmalara yönelik derin bir saygısızlığı gözler önüne sermektedir. Sivil hedeflerin, ticari merkezlerin hedef alınması, çatışmaların insani boyutunu vahşileştirirken, gerilimi daha da tırmandırarak yeni bir şiddet sarmalının kapısını aralamaktadır. Bu tür eylemler, yalnızca anlık bir hasar yaratmakla kalmayıp, Ortadoğu coğrafyasında kalıcı bir istikrarsızlık mirası bırakmaktadır.
+
+Ortadoğu, tarih boyunca çeşitli güç mücadelelerine sahne olmuş, her türlü dış müdahaleye ve iç çekişmeye maruz kalmış bir coğrafyadır. Lübnan'da yaşanan bu son hadise, bölgenin kronikleşmiş sorunlarının bir yansımasıdır. Tarafların, sözde barış süreçlerini dahi hiçe sayarak askeri güç kullanma eğilimi, bölgedeki tüm halkların huzurunu ve refahını doğrudan tehdit etmektedir. Bu tür çatışmalar, ekonomik gelişimi sekteye uğratmakla kalmaz, aynı zamanda sosyal dokuyu zedeler, bölgesel göç dalgalarını tetikler ve en önemlisi, dış güçlerin müdahil olma iştahını artırır. Türk milleti olarak, çevremizdeki her türden istikrarsızlığın, uzun vadede kendi milli çıkarlarımızı ve güvenliğimizi etkileyeceğinin bilincindeyiz.
+
+Dijital Tamga olarak vurgulamak isteriz ki, Türk milleti, kendi varoluş mücadelesini sürdürürken, etrafındaki her gelişmeyi dikkatle ve rasyonel bir perspektifle değerlendirir. Bizim için bölgedeki kalıcı barış ve istikrar, yalnızca temenni değil, aynı zamanda milli güvenliğimizin vazgeçilmez bir unsurudur. Sınırlarımız ötesinde süren bu tür çatışmalar, ateşkese rağmen devam eden saldırganlıklar, bölgenin geleceğini karanlığa sürüklemekte ve gerçek bir barış ortamının tesis edilmesinin önündeki en büyük engeli oluşturmaktadır. Güç odaklarının kendi çıkarları doğrultusunda bölgeyi sürekli bir gerilim hattında tutma çabalarına karşı, Türk milleti kendi yolunu, bağımsız ve hür bir biçimde çizmeye devam edecektir. Biz, Ortadoğu'da kan ve gözyaşının değil, Türk'ün bilge ve adil yönetimiyle filizlenecek bir refah ve huzur ortamının hayalini kurmaktayız.
