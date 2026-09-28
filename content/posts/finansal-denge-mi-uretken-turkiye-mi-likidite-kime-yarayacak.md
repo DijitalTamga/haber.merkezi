@@ -1,0 +1,13 @@
+---
+title: "Finansal Denge Mi, Üretken Türkiye Mi: Likidite Kime Yarayacak?"
+date: 2026-09-28T06:06:51+03:00
+draft: false
+cover:
+    image: "https://image.dunya.com/rcman/Cw1280h720q95gc/storage/files/images/2026/02/12/mehmet-simsek-sakz_cover.jpg"
+---
+
+Hazine ve Maliye Bakanı Mehmet Şimşek’in piyasanın ihtiyaç duyduğu likiditeyi sağlayacaklarına dair açıklaması, ekonomimiz için kritik bir konuyu tekrar gündeme getirmiştir. Finansal piyasalarda oluşan dalgalanmaları ve yatırımcı taleplerini karşılamak adına alınan bu tür tedbirler elbette ki bir gereklilik arz eder. Ancak asıl soru şudur: Sağlanacak olan bu likidite, Türk milletinin uzun vadeli refahını ve ekonomik bağımsızlığını güçlendirecek stratejik alanlara mı yönlendirilecek, yoksa kısa vadeli finansal dengeleri koruma adına sadece spekülatif akışlara can suyu mu olacaktır? Dijital Tamga olarak, bu kritik kararın milli menfaatler doğrultusunda alınması gerektiğinin altını çiziyoruz.
+
+Bir Türkçü iktisat anlayışına göre, ekonominin temel amacı, milletin topyekün refahını, üretim gücünü ve öz yeterliliğini artırmaktır. Sadece finansal piyasaların "rahatlaması" veya "dengelenmesi" gibi kavramlar, çoğu zaman küresel sermayenin ve sıcak paranın çıkarlarını gözeten yüzeysel tanımlamalardır. Gerçek bir ekonomik güç, fabrikalarda dumanı tüten bacalarla, tarlalarda bereketli hasatla, AR-GE merkezlerinde geliştirilen milli teknolojilerle inşa edilir. Sağlanan likiditenin, üretimi desteklemek, ihracatı artırmak, istihdam yaratmak ve stratejik sektörlerde dışa bağımlılığı azaltmak yerine, faiz getirisi peşinde koşan sermayeyi daha cazip hale getirmesi, milli iktisadımıza vurulacak en büyük darbe olacaktır. Türk'ün alın terinin ve vergilerinin, reel ekonomiyi güçlendiremeyen finansal sirkülasyonlara kurban edilmesi kabul edilemez.
+
+Bu bağlamda, hükümetten beklentimiz açıktır: Sağlanan likidite, öncelikle ve ivedilikle milli sanayimizin, KOBİ’lerimizin, stratejik tarımımızın ve yenilikçi teknoloji girişimlerimizin rekabet gücünü artırmaya yönlendirilmelidir. Üretim bandını hızlandıracak, katma değeri yüksek ürünler geliştirecek, dış ticaret açığını kapatacak ve Türk insanına yeni iş sahaları açacak projelere odaklanılmalıdır. Kısa dönemli piyasa rahatlamaları yerine, Türkiye'yi kendi ayakları üzerinde duran, dış şoklara karşı dirençli ve üreten bir güç haline getirecek uzun vadeli planlamalar esas alınmalıdır. Unutulmamalıdır ki ekonomik bağımsızlık, milli egemenliğimizin temel taşıdır. Türk milleti, kendi alın teriyle ürettiği değerlerle yükselmelidir, küresel finans sisteminin iniş çıkışlarına terk edilmemelidir.
