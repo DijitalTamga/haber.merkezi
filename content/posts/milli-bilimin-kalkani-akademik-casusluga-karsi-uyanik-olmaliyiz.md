@@ -1,0 +1,12 @@
+---
+title: "Milli Bilimin Kalkanı: Akademik Casusluğa Karşı Uyanık Olmalıyız"
+date: 2026-09-30T14:22:51+03:00
+draft: false
+
+---
+
+Birleşik Krallık'tan gelen son haberler, devletlerarası rekabetin sinsi ve yıkıcı boyutlarını bir kez daha gözler önüne serdi. İngiliz istihbarat teşkilatı MI5, ülkedeki üniversitelerin, Çin Devlet Güvenlik Bakanlığı ile bağlantılı paravan şirketler aracılığıyla Pekin'in casusluk ağına bilgi aktardığı konusunda ciddi uyarılarda bulundu. Özellikle Çin Genel Teknoloji Araştırma Enstitüsü gibi kurumların, İngiliz bilim insanlarının çalışmaları üzerinden elde ettiği verilerin, doğrudan Çin istihbaratına servis edildiği iddia ediliyor. Bu durum, akademik özgürlük ve uluslararası işbirliği adı altında yürütülen faaliyetlerin, nasıl bir milli güvenlik tehdidine dönüşebileceğinin acı bir örneğidir.
+
+Teknoloji ve bilgi çağı, savaşların ve rekabetin cephelerini de dönüştürmüştür. Artık en keskin silahlar tanklar ya da füzeler değil, ele geçirilen fikirler, çalınan patentler ve sızdırılan stratejik araştırmalardır. Bir milletin geleceği, üniversitelerinde üretilen bilimsel ve teknolojik birikimin gücüne bağlıdır. Bu birikimin yabancı güçlerin eline geçmesi, o milletin ekonomik bağımsızlığını, savunma kapasitesini ve hatta kültürel kimliğini tehdit eder hale gelir. İngiltere örneği, hiçbir ülkenin, özellikle de stratejik önemdeki araştırmaları yürüten üniversitelerin, uluslararası işbirliği adı altında gelen her teklife körü körüne güvenemeyeceğini açıkça göstermektedir. Zira düşman artık açıkça meydan okumak yerine, akademik koridorlarda, laboratuvarlarda ve araştırma fonlarında sinsice kol gezebilmektedir.
+
+Biz Türkçüler olarak, Türkiye Cumhuriyeti'nin ve Türk Milleti'nin geleceğinin, kendi öz kaynaklarımızla üreteceğimiz bilgi ve teknolojiye bağlı olduğuna inanırız. Bu bağlamda, İngiltere'nin yaşadığı bu tecrübeden ders çıkarmak hayati önem taşımaktadır. Üniversitelerimiz, araştırma kurumlarımız ve özel sektörümüz, yabancı fonlar veya ortaklıklar aracılığıyla gelebilecek casusluk girişimlerine karşı maksimum düzeyde uyanık olmalı, gerekli güvenlik önlemlerini almalı ve milli çıkarlarımızı her şeyin üzerinde tutmalıdır. Kendi bilim insanlarımızı desteklemeli, yerli ve milli teknoloji üretimini teşvik etmeli, dışarıdan gelebilecek her türlü bilgi sızdırma ve teknoloji transferi girişimine karşı devletin tüm kurumlarıyla yekvücut bir duruş sergilemeliyiz. Milli beka, milli bilimin güvencesiyle sağlanacaktır.
