@@ -1,0 +1,13 @@
+---
+title: "'Öncelik Türkiye': Bu Çizgi, Türk Milliyetçiliğinin Tavizsiz Şartıdır!"
+date: 2026-10-02T00:27:33+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2492000/erdogan-aa-2492661.jpg"
+---
+
+Cumhurbaşkanı Erdoğan'ın Türkiye Büyük Millet Meclisi'ndeki yasama yılı açılışında sarf ettiği "Her siyasi partinin önceliği Türkiye olmak zorundadır" ve "Türkiye merkezli siyaset icra etmelidir" sözleri, Türk milliyetçiliğinin özünde yatan bir hakikati dile getirmektedir. Ancak bu ifadenin altını doldurmak ve gerçek anlamıyla kavrayabilmek için, öncelikle "Türkiye" kavramını doğru tanımlamak gerekir. Biz Türkçüler için Türkiye, sadece bir coğrafya, bir devlet veya bir yönetim biçimi değildir; Türkiye, binlerce yıldır kanla, terle ve irfanla yoğrulmuş, Türk Milleti'nin mübarek vatanı, atalarımızın emaneti ve gelecek nesillerimizin kutlu varoluş zeminidir. Dolayısıyla "öncelik Türkiye" demek, Türk Milleti'nin bekası, refahı, kültürel kimliği ve stratejik çıkarları her şeyin üzerinde tutulmalıdır demektir.
+
+"Türkiye merkezli siyaset" ise, Türk Milleti'nin kendi öz dinamiklerinden, tarihinden, eşsiz kültüründen ve milli karakterinden güç alarak yol çizmesini zorunlu kılar. Bu, batıdan doğuya, kuzeyden güneye hiçbir yabancı ideolojinin, ekonomik bağımlılığın veya kültürel dayatmanın Türk siyasetine yön veremeyeceği anlamına gelir. Türk'ün kendi ruhundan beslenen, kendi öz değerleriyle yükselen bir milli irade ve strateji geliştirmek esastır. Siyasi partiler arası rekabet ve görüş ayrılıkları ne denli keskin olursa olsun, Türk Milleti'nin birliği, devletin bütünlüğü ve Türk kültürünün yüceliği her zaman ortak payda, vazgeçilmez kırmızı çizgi olmalıdır. Millî birliği parçalayan, Türk'ün öz değerlerini aşındıran, dış etkilere kapı aralayan her türlü söylem ve eylem, "Türkiye merkezli" olmaktan uzaktır.
+
+Bu bağlamda, Cumhurbaşkanı'nın vurgusu, aslında Türk milliyetçiliğinin asırlardır haykırdığı temel bir ülküye işaret etmektedir. Türk Milleti'nin ebedi yurdu olan Türkiye'yi, siyasi hesapların ve şahsi emellerin üstünde tutmak, her Türk'ün ve özellikle siyasetle meşgul olan her bireyin şaşmaz görevidir. Türkiye'nin kendi iç dinamiklerinden güç alması, milletimizin çağlar ötesinden gelen birikimiyle, kendi özgün medeniyet tasavvuruyla geleceğe yürümesidir. Dijital Tamga olarak altını bir kez daha çiziyoruz: "Öncelik Türkiye" demek, tavizsiz bir şekilde Türk Milleti'nin ve onun kutsal yurdunun önceliğidir. Bu ilke, sadece bir siyasi slogan değil, Türk varlığının teminatıdır. Bu çizgiden sapmak, milli benliğimize, tarihimize ve geleceğimize ihanetle eş anlamlıdır.
