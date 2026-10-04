@@ -1,0 +1,13 @@
+---
+title: "Akdeniz'in Kilidi Libya: Emperyal Çıkarların Gölgesinde Çözümsüzlük"
+date: 2026-10-04T05:58:24+03:00
+draft: false
+cover:
+    image: "https://i.guim.co.uk/img/media/e919f8d82815f579e7c5edb2cd27ecadbc3127e9/403_0_3248_2598/master/3248.jpg?width=140&quality=85&auto=format&fit=max&s=7bb1a21b0fceeed68eb9af10fbeedb3d"
+---
+
+Libya'da uzun süredir umut vadeden birlik görüşmeleri, savaş ağası Haftar'ın oğlu Saddam Haftar'ın yakıt tesisleri ve enerji santrallerine yönelik insansız hava aracı saldırılarıyla bağlantılı olduğu iddiaları üzerine aniden durdu. Batı Libya'daki Ulusal Birlik Hükümeti'nin (GNU) bu gelişmeler üzerine Saddam Haftar ile işbirliğinin 'imkansız' hale geldiğini açıklamasıyla ABD destekli birleşme planı da akamete uğradı. Akdeniz'in stratejik kapısı Libya'da bu denli kritik bir figürün, çatışmayı körükleyen eylemlerle ilişkilendirilmesi ve aynı anda ABD tarafından birleştirici bir güç olarak görülme ironisi, bölgedeki dış müdahalelerin ne denli gerçeklikten uzak olduğunu bir kez daha gözler önüne sermektedir.
+
+Batılı güçlerin, özellikle de Amerika Birleşik Devletleri'nin, Libya'da istikrarı sağlamak adına yürüttüğü politikalar, sıkça çelişkilerle dolu bir tablo çizmektedir. Kendi çıkarları doğrultusunda, yerel dinamikleri ve tarihsel gerçeklikleri göz ardı ederek, bölgenin kanlı geçmişinden beslenen ve silahlı gruplarla bağlantısı olan figürleri meşrulaştırma çabaları, yalnızca daha fazla kaosu ve bölünmeyi tetiklemektedir. Libya halkının kendi kaderini tayin etme iradesi yerine, dışarıdan dayatılan ve sorgulanabilir aktörler üzerinden şekillendirilmeye çalışılan bir gelecek tahayyülü, ülkenin kronikleşmiş sorunlarına kalıcı bir çözüm sunmaktan uzaktır. Bu tür müdahaleler, her seferinde yeni bir çatışma döngüsünün başlangıcı olmakta, bölgenin enerji ve güvenlik dengelerini derinden sarsmaktadır.
+
+Libya'daki bu çözümsüzlük sarmalı, sadece ülke sınırları içinde değil, tüm Doğu Akdeniz ve Kuzey Afrika jeopolitiği için ciddi riskler barındırmaktadır. Bölgedeki enerji güvenliği, deniz yetki alanları ve genel istikrar, bu kargaşadan doğrudan etkilenmektedir. Gerçek ve kalıcı bir barış, ancak Libya halkının kendi ulusal çıkarlarını merkeze alan, dış güçlerin manipülasyonundan arındırılmış, içten bir uzlaşı ile mümkündür. Dışarıdan atanmış "kurtarıcılar" veya dayatılmış "birlik" senaryoları, tarih boyunca olduğu gibi bugün de sadece geçici ateşkesler sağlamakta, ancak kök sorunları çözemeyerek daha büyük patlamalara zemin hazırlamaktadır. Bu nedenle Libya'nın geleceği, bölgesel gerçeklere saygı duyan, rasyonel ve egemenlik haklarına özen gösteren yaklaşımlarla inşa edilmelidir.
