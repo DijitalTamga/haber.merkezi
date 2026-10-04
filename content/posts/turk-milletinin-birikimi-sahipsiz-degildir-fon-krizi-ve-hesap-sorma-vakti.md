@@ -1,0 +1,13 @@
+---
+title: "Türk Milletinin Birikimi Sahipsiz Değildir: Fon Krizi ve Hesap Sorma Vakti"
+date: 2026-10-04T12:55:27+03:00
+draft: false
+cover:
+    image: "https://media.cumhuriyet.com.tr/Archive/d39180a2-eb90-47b5-a49c-0f0e5ea77ca9.jpg"
+---
+
+Türkiye'de yüz binlerce vatandaşın mağduriyetine yol açan "fon krizi" iddiaları, bir kez daha ulusal bir meselenin merkezine oturdu. Türkiye İşçi Partisi'nin TMSF önündeki protestosu, sorunun derinliğini ve aciliyetini gözler önüne serse de, bu durum bir siyasi partinin meselesi olmaktan öte, Türk milletinin ortak varlığına ve geleceğine yönelik ciddi bir tehdittir. Türk milletinin yıllarca süren çabası, alın teri ve fedakarlıklarıyla oluşturduğu birikimlerin, şeffaf olmayan mekanizmalarla veya liyakatsiz yönetimlerle nasıl heba edildiği sorusu, devletin temel varlık sebebi olan millete karşı sorumluluğunu doğrudan ilgilendirmektedir. Bu süreçte kaybedilen sadece finansal değerler değil, aynı zamanda Türk vatandaşının devlete ve kurumlarına olan güvenidir.
+
+"Yüz binler kaybetti, milyarlar kime gitti?" sorusu, sıradan bir mali sorgulamanın ötesinde, ulusal onurumuzun ve adalet anlayışımızın temelini sarsan bir çığlıktır. Bu denli büyük bir fon kaybının ve mağduriyetin yaşanması, yönetimdeki siyasi ve bürokratik kadroların ciddiyetini, denetim mekanizmalarının etkinliğini ve en önemlisi milletin emanetine sahip çıkma iradesini sorgulatır hale gelmiştir. Türkiye İşçi Partisi'nin çağrısı haklıdır; siyasi ve bürokratik sorumlular hakkında soruşturma açılması, TBMM’de araştırma komisyonu kurulması ve ilgili kurumların yöneticilerinin istifası, sadece bir başlangıç olmalıdır. Türk milletinin her bir kuruşunun nereye aktığını, kimlerin ihmali veya kasti eylemleriyle bu büyük zararın ortaya çıktığını tam anlamıyla ortaya koymak, milli bir zorunluluktur.
+
+Bu tür krizler, Türk devletinin gücünü ve milletin devlete olan bağlılığını zayıflatma potansiyeli taşır. Milletin devlete olan inancı sarsıldığında, ulusal birliğimiz ve beraberliğimiz de zarar görür. Bu nedenle, fon krizine ilişkin gerçeklerin tüm şeffaflığıyla ortaya konulması, sorumluların tespiti ve hak ettikleri cezayı almaları elzemdir. Türk milleti, kendi alın terinin nereye aktığını bilme, haksızlığa uğrayanların zararlarının telafi edilmesi ve benzer olayların tekrar yaşanmaması için gerekli tüm tedbirlerin alınmasını talep etme hakkına sahiptir. Devlet, milletinin malına ve emeğine sahip çıkmakla yükümlüdür; bu yükümlülük yerine getirilmediği takdirde, milli irade sarsılacak ve milletin devlete olan güveni onarılamaz yaralar alacaktır. Türk milleti, bu hesaplaşmanın sonuna kadar takipçisi olacaktır.
