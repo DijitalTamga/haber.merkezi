@@ -1,0 +1,13 @@
+---
+title: "Nükleer Hamle: ABD Geleceğini İnşa Ederken, Türk Devleti Neyi Bekliyor?"
+date: 2026-10-06T00:27:20+03:00
+draft: false
+cover:
+    image: "https://geoim.bloomberght.com/l/2026/10/05/ver1791231360/3790401/jpg/1280x720"
+---
+
+Amerika Birleşik Devletleri Enerji Bakanlığı’nın, ülkenin stratejik enerji altyapısı için attığı son adım, dünya jeopolitiğinde ve enerji politikalarında izlenen uzun vadeli vizyonu bir kez daha gözler önüne serdi. Vistra'nın Pennsylvania ve Ohio'daki nükleer santrallerinin kapasite artırımı ve modernizasyonu için 4,2 milyar dolara kadar koşullu kredi taahhüdünde bulunulması, sıradan bir ekonomik karar olmanın ötesinde, bir devletin kendi geleceğini ve ulusal egemenliğini güvence altına alma hedefinin somut bir göstergesidir. Nükleer enerji, sadece elektrik üretmekten ibaret değildir; aynı zamanda yüksek teknolojiye erişim, enerji bağımsızlığı ve uluslararası arenada siyasi etki demektir. Bu yatırım, ABD’nin enerji güvenliğini ve dolayısıyla milli çıkarlarını koruma kararlılığının açık bir ilanıdır.
+
+Peki, küresel güçler bu denli stratejik adımlar atarken, Türk Milleti bu tablonun neresindedir? Yıllarca dışa bağımlılığın getirdiği yüklerle mücadele eden Türkiye, enerji alanında gerçek anlamda bağımsızlaşma yolunda yeterince hızlı ve kararlı adımlar atabilmiş midir? Kendi nükleer teknoloji kapasitemizi geliştirmek, kendi mühendislerimizi, bilim insanlarımızı yetiştirmek ve enerji ihtiyacımızı tamamen kendi imkanlarımızla karşılayacak bir seviyeye gelmek, sadece bir tercih değil, bir zorunluluktur. Büyük devletler, yüz yıllık stratejilerle hareket ederek geleceklerini inşa ederken, Türk Devleti'nin de kısa vadeli politikaların ötesine geçerek, Türk Milleti'nin tam bağımsızlığını teminat altına alacak radikal ve akılcı enerji politikaları geliştirmesi elzemdir.
+
+Türk Milleti'nin güçlü ve bağımsız bir geleceğe ulaşabilmesi, ancak enerji güvenliğini kendi elleriyle sağlayabilmesiyle mümkündür. Nükleer enerji gibi stratejik ve karmaşık alanlarda dışa bağımlılığı sürdürmek, sadece ekonomik değil, aynı zamanda siyasi ve milli bir zaafiyet oluşturur. Bu nedenle, kendi nükleer santrallerimizi kendi öz kaynaklarımızla, kendi bilgi birikimimizle kuracak, işletecek ve geliştirecek iradeyi ortaya koymak zorundayız. Geleceğin Türk Devleti, enerji mücadelesinde tam bağımsızlık bayrağını dalgalandıran, kendi milli ve stratejik çıkarlarını en üst düzeyde koruyan, çağdaş medeniyet seviyesinin üzerine çıkma ülküsünü bu tür vizyoner hamlelerle gerçeğe dönüştüren bir yapıya sahip olmalıdır. Aksi halde, başkalarının kurduğu düzenin bir parçası olmaktan öteye geçmek mümkün olmayacaktır.
