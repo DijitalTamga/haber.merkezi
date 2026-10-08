@@ -1,0 +1,12 @@
+---
+title: "Modi'nin İsrail Yakınlaşması: Jeopolitikte Milli Çıkarın Soğuk Yüzü"
+date: 2026-10-08T09:38:00+03:00
+draft: false
+
+---
+
+Küresel jeopolitik harita, Gazze'deki gelişmelerle birlikte yeniden şekillenirken, dikkat çekici bir tablo Hindistan'dan yükseliyor. İsrail'in geleneksel müttefiklerinin dahi Netanyahu hükümetinden mesafeli durduğu bir dönemde, Narendra Modi liderliğindeki Hindistan, İsrail ile ilişkilerini daha da sıkılaştırma yoluna gidiyor. Bu durum, uluslararası arenadaki yaygın tepkilere rağmen, bir ülkenin kendi ulusal çıkarlarını nasıl bir kararlılıkla önceliklendirebildiğinin çarpıcı bir göstergesidir. Eski ittifakların ve küresel kamuoyunun hızla değiştiği bu dönemde, Yeni Delhi'nin bu adımı, adeta buz gibi bir rasyonellikle işleyen ulus devlet aklını gözler önüne sermektedir.
+
+Hindistan'ın bu tavrı, duygusal veya ideolojik bir yakınlaşmadan ziyade, derinlemesine stratejik hesaplara dayanmaktadır. Bölgesel ve küresel güç dengelerinde Çin'e karşı bir denge unsuru arayışı, savunma sanayii ve ileri teknoloji alanlarında İsrail ile işbirliği potansiyeli, bu yakınlaşmanın temel dinamikleridir. Hindistan, küresel siyasette bağımsız ve etkin bir aktör olma vizyonunu, net bir jeopolitik pragmatizmle birleştirmektedir. Geleneksel "Bağlantısızlar Hareketi" mirasından sıyrılarak, kendi milli hedeflerine hizmet edecek güçlü ortaklıklar kurma çabası, Modi yönetiminin dış politikasının omurgasını oluşturmaktadır. Bu, ulus devletin kendi varlığını, güvenliğini ve refahını maksimize etme çabasının modern bir örneğidir.
+
+Hindistan'ın bu "çıkar odaklı" ve uluslararası eleştirilere dirençli dış politika duruşu, diğer ulus devletler için de önemli çıkarımlar sunmaktadır. Küresel sistemin belirsizleştiği, blokların esnediği bu yeni düzende, her ülkenin kendi jeopolitik avantajlarını en iyi şekilde değerlendirmesi elzem hale gelmiştir. Türkiye için bu durum, milli menfaatlerin her türlü ideolojik veya duygusal kaygının üzerinde tutulması gerektiği gerçeğini bir kez daha hatırlatmaktadır. Kendi stratejik derinliğimizi, ekonomik gücümüzü ve kültürel mirasımızı merkeze alarak, kimseye boyun eğmeden, yalnızca Türk milletinin bekasını ve refahını gözeten, soğuk ve rasyonel bir dış politika izlemek, çağa ayak uydurmanın ve bölgesel/küresel bir güç olmanın tek yoludur. Türkiye, benzer bir milli pragmatizmle hareket ederek, dünya sahnesinde hak ettiği yeri almalıdır.
