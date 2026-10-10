@@ -1,0 +1,12 @@
+---
+title: "Büyük Güçlerin Pragmatizmi: Dizel Anlaşması ve Bölgesel Gerçekler"
+date: 2026-10-10T07:51:00+03:00
+draft: false
+
+---
+
+ABD eski Başkanı Donald Trump'ın Rusya ile dizel yakıt anlaşması yapıldığını duyurması ve Ukrayna Devlet Başkanı Zelensky'nin bu hamleyi sert bir dille eleştirmesi, uluslararası ilişkilerin acımasız gerçeklerini bir kez daha gözler önüne serdi. Zelensky'nin "savaşın uzatılmaması gereken bir yatırımı" olarak tanımladığı bu anlaşma, küresel güçlerin çıkarlarını her türlü ilke ve ittifakın önüne koyabildiğinin somut bir göstergesidir. Zira Washington'dan gelen bu açıklama, Atlantik ötesi ittifakın dahi bölgesel çatışmaları kendi ekonomik ve stratejik ajandasına göre şekillendirebileceği yanılgısını yıkmaktadır. Bu durum, dünya sahnesinde güçlü olanın kendi doğrularını dayatma kapasitesini ve enerji kaynaklarının jeopolitikteki belirleyici rolünü bir kez daha kanıtlamıştır.
+
+Bu anlaşmanın bölgesel yansımaları, Türk Milleti ve Türk Dünyası için de ibret verici dersler içermektedir. Rusya'nın ekonomik olarak güçlenmesi, Karadeniz, Kafkasya ve Orta Asya gibi stratejik öneme sahip bölgelerdeki güç dengelerini doğrudan etkileyecektir. Türk devletleri olarak bu coğrafyalarda kendi bağımsız ve güçlü duruşumuzu koruma zaruretinin altı bir kez daha çizilmektedir. Batılı müttefiklerin dahi kendi ekonomik çıkarları uğruna Rusya ile bu tür anlaşmalara gidebilmesi, dış politikada mutlak bir bağımsızlık ve kendine yeterlilik ilkesinin ne denli hayati olduğunu göstermektedir. Türkiye'nin, çevresindeki tüm bu güç oyunlarını doğru okuması, manevra alanını geniş tutması ve herhangi bir büyük gücün yörüngesine girmeden kendi ulusal menfaatlerini azimle takip etmesi elzemdir.
+
+Bu hadise, bize uluslararası arenanın bir çıkar çatışması alanı olduğunu ve hiçbir milletin kaderini başka bir gücün insafına bırakmaması gerektiğini öğretmektedir. Enerji güvenliği, stratejik bağımsızlık ve diplomatik beceri, Türk Milleti'nin geleceğini inşa ederken olmazsa olmaz unsurlardır. Kendi öz kaynaklarımıza yönelmek, teknolojik bağımsızlığımızı sağlamak ve Türk devletleri arasındaki iş birliğini en üst düzeye çıkarmak, bu tür pragmatik hamlelerin karşısında dimdik durabilmemizin tek yoludur. Türkiye, sadece kendisi için değil, tüm Türk Dünyası için bir denge unsuru ve güven limanı olma vizyonunu bu tür olaylar ışığında daha da pekiştirmeli, kutup merkezli bir dünyaya karşı kendi öz gücünü ortaya koymalıdır.
