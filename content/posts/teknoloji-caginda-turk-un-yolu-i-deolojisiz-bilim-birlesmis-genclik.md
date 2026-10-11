@@ -1,0 +1,13 @@
+---
+title: "Teknoloji Çağında Türk'ün Yolu: İdeolojisiz Bilim, Birleşmiş Gençlik"
+date: 2026-10-11T01:31:42+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2494000/erdogan-2494841.jpg"
+---
+
+Cumhurbaşkanı Erdoğan'ın "teknooligarklara karşı en büyük güvencemiz TEKNOFEST gençliği olacaktır" şeklindeki açıklaması, ülkemizin tam bağımsızlık ve teknolojik egemenlik hedefine yönelik umut verici bir işaret olarak okunabilir. Dünya genelinde teknoloji devlerinin oluşturduğu baskı ve kontrol mekanizmalarına karşı milli bir duruş sergilemek, her Türkçünün öncelikli amacıdır. TEKNOFEST gibi organizasyonlar, Türk gençliğinin bu alandaki potansiyelini ortaya koymak, onlara vizyon kazandırmak ve milli sanayimizi güçlendirmek adına hayati bir rol oynamaktadır. Bu vizyon, gelecek yüzyılda Türkiye Cumhuriyeti'nin varlığını ve gücünü bilim ve teknoloji ile perçinleme idealinin temelini oluşturmaktadır.
+
+Ancak aynı açıklamada "Elbette İlim Yayma gençliği olacaktır" ifadesinin kullanılması, milli teknoloji hamlemizin kapsayıcılığı ve bütünlüğü hakkında önemli soruları gündeme getirmektedir. Türkiye'nin bilim ve teknoloji alanındaki atılımı, Türk ırkına mensup tüm gençliğin ortak hedefi olmalıdır. Bilim, evrensel bir dildir ve ideolojilerden, belirli grupsal aidiyetlerden arınmış, tamamen liyakat ve akla dayalı bir disiplindir. Milli teknoloji stratejimiz, hiçbir ayrım gözetmeksizin, ülkesini seven, bilime ve teknolojiye meraklı her Türk gencinin katılımını teşvik etmeli, onları ortak bir milli ülkü etrafında toplamalıdır. Teknoloji geliştirmek, dini veya ideolojik bir referansla değil, sadece Türk Milleti'nin çıkarı ve yükselişi için yapılmalıdır. Bu tür grupsal tanımlamalar, aslında tek vücut olması gereken gençliğimizi bölmek, enerjilerini farklı odaklara yönlendirmek riskini taşır. Türkiye'nin geleceği, hiçbir ideolojinin gölgesinde kalmadan, sadece Türk kimliği ve bilimin ışığında yükselen bir gençlikle inşa edilecektir.
+
+Kısacası, teknolojik bağımsızlık mücadelemiz, Türk'ün akıl ve bilimle yoğrulmuş tarihsel gücünü yeniden ayağa kaldırma mücadelesidir. Bu mücadelede en büyük güvencemiz, ayrıştırıcı söylemlerden uzak, milli bir bilinçle donanmış, bilim ve teknolojiye gönül vermiş birleşik Türk gençliğidir. Geleceğin Türkiye'si, parti veya grup aidiyetine değil, sadece Türk milletine hizmet etme ülküsüne adanmış, liyakatli, çalışkan ve aydınlık zihinlerin eseridir. Tamga olarak inancımız odur ki, Türk gençliği bu büyük vazifenin bilincindedir ve bilimin yol göstericiliğinde, ecdadından aldığı ilhamla, Türk adını ve gücünü geleceğe taşıyacaktır.
