@@ -1,0 +1,12 @@
+---
+title: "Küresel Tehditler ve Türk'ün Bekası: Yeni Çağda İstihbarat ve Milli Güç"
+date: 2026-10-13T17:12:55+03:00
+draft: false
+
+---
+
+Birleşik Krallık iç istihbarat teşkilatı MI5'in başkanı Sir Ken McCallum'un açıklamaları, küresel güvenlik dinamiklerindeki derin değişimi gözler önüne sermektedir. Terörle mücadelenin yanı sıra, devlet destekli tehditler ve yapay zeka gibi yeni nesil meydan okumaların artık operasyonel ölçekte eşit derecede önemli hale geldiği vurgusu, her egemen devlet için hayati bir uyarı niteliğindedir. Bu durum, Türkiye gibi jeopolitik konumu itibarıyla sürekli bir tehdit sarmalında olan bir ulus için özel bir dikkat ve öngörü gerektirmektedir. Milli beka mücadelesi, artık sadece bilinen düşmanlarla değil, aynı zamanda uluslararası güç dengelerinin yeniden şekillendiği, teknolojik sınırların zorlandığı karmaşık bir zeminde yürütülmektedir.
+
+McCallum'un işaret ettiği Rusya ve İran gibi devletler, küresel ve bölgesel ölçekte nüfuz mücadelesi veren aktörler olarak Türkiye'nin de doğrudan veya dolaylı olarak etkilendiği bir jeopolitik tabloyu resmetmektedir. Bu tür devlet kaynaklı tehditler, sadece askeri güçle değil, aynı zamanda siber operasyonlar, propaganda, istihbarat faaliyetleri ve ekonomik baskı gibi geniş bir spektrumda ortaya çıkabilmektedir. Bir Türkçü bakış açısıyla, devletler arası ilişkilerde dostlukların değil, milli çıkarların ve güç dengelerinin esas olduğu unutulmamalıdır. Türk Devleti, bu kompleks denklemde kendi çıkarlarını korumak ve bölgedeki lider konumunu pekiştirmek için stratejik derinliğini, istihbarat kapasitesini ve diplomatik çevikliğini sürekli artırmak zorundadır.
+
+Ancak günümüz tehdit algısının en çetrefilli bileşenlerinden biri şüphesiz yapay zekadır. Yapay zeka, hem bir savunma hem de bir saldırı aracı olarak milli güvenliğin geleceğini şekillendirme potansiyeline sahiptir. Siber saldırılardan dezenformasyona, otonom silahlardan istihbarat analizine kadar pek çok alanda devrimsel etkileri olacak bu teknolojiye hakim olmak, ulusal egemenliğin ve bağımsızlığın yeni kalesidir. Türk Milleti, çağının gerisinde kalma lüksüne sahip değildir. Bilim ve teknolojiye yapılan yatırımlar, yerli ve milli yapay zeka kapasitesinin geliştirilmesi, Türk gençlerinin bu alanda yetkinleşmesi, yalnızca savunma için değil, aynı zamanda "Türk'ün Yüzyılı" vizyonu için de vazgeçilmezdir. Geleceğin büyük devletleri, teknolojiyi tüketenler değil, üretenler ve yön verenler arasından çıkacaktır.
