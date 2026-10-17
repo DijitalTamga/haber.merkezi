@@ -1,0 +1,12 @@
+---
+title: "Büyük Güçlerin 'Hukuk' Yorumu: Yaptırımlar Pazarlık Aracına Dönüşürken Türkiye'nin Dersleri"
+date: 2026-10-17T13:21:34+03:00
+draft: false
+
+---
+
+1.  Son zamanlarda ABD Başkanı Donald Trump'ın Rusya'ya yönelik, aslında yeni bir yasa ile zorunlu kılınan enerji yaptırımlarını, Moskova ile "dizel salımı" konusunda yapılan bir anlaşma karşılığında askıya alması, uluslararası ilişkilerin gerçek yüzünü bir kez daha gözler önüne sermiştir. Bu gelişme, küresel ölçekteki güç sahiplerinin "yaptırım" ve "uluslararası hukuk" gibi kavramları, kendi milli çıkarları doğrultusunda nasıl esnek birer pazarlık aracına dönüştürebildiğinin çarpıcı bir örneğidir. Yasaların ve taahhütlerin, büyük aktörlerin pragmatik çıkarları söz konusu olduğunda ne kadar kolay göz ardı edilebileceğini gösteren bu durum, ne ideolojilerle ne de kalıcı müttefiklik anlayışıyla açıklanabilir; yalnızca ham ve gerçekçi çıkar hesaplarıyla izah edilebilir.
+
+2.  Bu tür olaylar, dünya genelindeki devletlerin, özellikle de Türkiye gibi stratejik konuma sahip ülkelerin, dış politika ve ulusal güvenlik yaklaşımlarını gözden geçirmeleri için önemli bir referans noktasıdır. Zira bu tablo, uluslararası sistemde "kural koyucu" olarak addedilen aktörlerin dahi, kendi koydukları kurallara ne denli seçici davrandığını ortaya koymaktadır. "Müttefiklik" söylemlerinin, anlık ticari veya jeopolitik çıkarlar uğruna ne kadar kolay feda edilebildiği, bu vaka ile bir kez daha tescillenmiştir. Bu durum, diğer ülkeler için, özellikle de kendi egemenliğini ve milli çıkarlarını her şeyin üzerinde tutan bir Türkçü perspektiften, uluslararası ilişkilerde saflık veya naifliğin yerinin olmadığını, tek güvenilir pusulanın özbeöz milli menfaat olduğunu açıkça göstermektedir.
+
+3.  Türkiye, bu uluslararası pragmatizm ve çıkar odaklı yaklaşımlar yumağında kendi yolunu çizerken, dersini iyi almalı ve stratejilerini bu gerçeklik üzerine inşa etmelidir. Ne Amerika'nın ne de Rusya'nın attığı adımlar, Türkiye'nin kendi geleceğini ve güvenliğini teminat altına almasını beklememelidir. Tam aksine, bu tür olaylar, Türkiye'nin kendi enerji güvenliğini sağlamlaştırma, kaynak çeşitliliğini artırma ve yerli ve milli imkanlarla bağımsızlığını pekiştirme çabalarını hızlandırmasının ne kadar hayati olduğunu ortaya koymaktadır. Türkiye, dünya siyasetinin bu acımasız gerçekleri karşısında, yalnızca kendi gücüne, kendi kararlarına ve sarsılmaz milli iradesine dayanarak yoluna devam etmeli; milli menfaatlerini ödünsüzce savunmalıdır.
