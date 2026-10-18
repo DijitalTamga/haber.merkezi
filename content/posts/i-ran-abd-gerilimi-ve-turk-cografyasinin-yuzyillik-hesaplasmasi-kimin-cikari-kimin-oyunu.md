@@ -1,0 +1,13 @@
+---
+title: "İran-ABD Gerilimi ve Türk Coğrafyasının Yüzyıllık Hesaplaşması: Kimin Çıkarı, Kimin Oyunu?"
+date: 2026-10-18T11:50:51+03:00
+draft: false
+cover:
+    image: "https://im.haberturk.com/l/2026/10/18/ver1792323658/3920629/jpg/1920x1080"
+---
+
+Yakın coğrafyamızda tansiyon yine yükselirken, İran'ın ABD tehditlerine karşı "boyun eğmeyeceğiz" çıkışı, bölgedeki jeopolitik mücadelenin yeni bir perdesini aralıyor. İran Dışişleri Bakanı Arakçi'nin "Kendimizi savunma hazırlığımız önceki savaşlardan daha yüksek" sözleri, bir yandan ulusal irade beyanı niteliği taşırken, diğer yandan bölgedeki güç dengelerinin ne denli kırılgan olduğunu gözler önüne sermektedir. Bu açıklama, İran'ın kendi milli bekasını öncelediğini ve dış baskılara karşı direniş azmini vurgularken, aynı zamanda pragmatik bir yaklaşımla diplomasi kapılarını da açık tuttuğunu göstermektedir. ABD'ye iletildiği belirtilen "7 aşamalı 7 günlük plan", uluslararası ilişkilerde sert söylemlerin dahi müzakere masasının bir parçası olabileceğini kanıtlar niteliktedir.
+
+Türk milliyetçileri olarak bu gelişmeleri sadece iki devlet arasındaki bir çekişme olarak değil, Türk coğrafyasını doğrudan veya dolaylı etkileyen büyük bir jeopolitik satranç tahtasının bir hamlesi olarak değerlendirmeliyiz. İran, içinde ciddi oranda Türk nüfusu barındıran ve Hazar Denizi'nden Kafkaslar'a kadar uzanan geniş bir coğrafyada Türk dünyası ile komşuluk eden bir devlettir. ABD ise küresel bir güç olarak kendi stratejik çıkarlarını, enerji yollarının güvenliğini ve bölgesel hegemonyasını hedeflemekte, bu uğurda çeşitli aktörleri kullanmaktan çekinmemektedir. Bu çekişmede, ne İran'ın ne de ABD'nin Türk milletinin uzun vadeli menfaatlerini öncelediğini düşünmek saflık olacaktır. Her ikisi de kendi ulusal çıkarları doğrultusunda hareket ederken, bölgedeki dengelerin bozulması ya da yeniden şekillenmesi, doğrudan Türk ve Turan ülküsüne yönelik tehditler veya fırsatlar yaratabilir.
+
+Bu karmaşık denklemde Türk milletine düşen yegane vazife, kendi öz güç ve birliğiyle ayakta kalmaktır. Kimsenin vekili ya da piyonu olmadan, milli sınırlarımızdan öte Türk dünyasının huzur ve refahını da gözetecek bağımsız bir dış politika izlemek zorundayız. Bölgedeki her çalkantı, bize kendi savunma sanayimizi daha da güçlendirme, milli teknolojimizi geliştirme ve jeopolitik stratejilerimizi keskinleştirme zorunluluğunu hatırlatmalıdır. Ne İran'ın direnişi ne de ABD'nin diplomatik hamleleri, Türk milletinin kendi kaderini belirleme iradesinin önüne geçemez. Tarihten ders çıkararak, Türk'ün Türk'ten başka dostu olmadığı gerçeğini unutmadan, bölgesel güç mücadelelerini iyi okumalı ve Türk birliğinin şemsiyesi altında kendi geleceğimizi inşa etmeliyiz.
