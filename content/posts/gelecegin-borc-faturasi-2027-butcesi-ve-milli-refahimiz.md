@@ -1,0 +1,12 @@
+---
+title: "Geleceğin Borç Faturası: 2027 Bütçesi ve Milli Refahımız"
+date: 2026-10-20T21:59:06+03:00
+draft: false
+
+---
+
+Türkiye Büyük Millet Meclisi'nde 2027 bütçe görüşmeleri başlarken, ortaya konulan teklif Türk milletinin geleceği adına kaygı verici tabloyu bir kez daha gözler önüne seriyor. Tam 3 trilyon 868 milyar TL'lik rekor bir bütçe açığı öngörülmesi, devletin mali disiplinden ne denli uzaklaştığını ve kaynak yönetiminde milli önceliklerin göz ardı edildiğini düşündürmektedir. Her ne kadar eğitim, sağlık, savunma gibi alanlarda artışlar planlansa da, bu denli büyük bir açığın gölgesinde yapılan harcamaların ne kadar sürdürülebilir olduğu ve Türk milletinin gerçek refahına ne ölçüde hizmet edeceği büyük bir soru işaretidir. Bu rakamlar, sadece kağıt üzerindeki haneler değil, her bir Türk vatandaşının, özellikle de geleceğin teminatı olan genç nesillerin omuzlarına binecek potansiyel bir yüktür.
+
+Planlanan artışlar her ne kadar kulağa hoş gelse de, bu artışların derinleşen bütçe açığı ile birlikte nasıl finanse edileceği ve milli ekonominin üzerindeki yükün nasıl hafifletileceği temel bir meseledir. Savunma harcamalarındaki artış stratejik öneme sahipken, eğitim ve sağlık gibi alanlardaki yatırımların niteliği, verimliliği ve Türk insanının yaşam kalitesini doğrudan etkileme potansiyeli taşır. Ancak tüm bu harcamalar, milli üretim ve sanayide beklenen atılımlar gerçekleşmeden, yüksek borçlanma maliyetleriyle finanse edildiğinde, sadece kısa vadeli çözümler sunarak uzun vadede daha büyük sorunlara zemin hazırlayabilir. Milli kalkınma, günübirlik harcama kalemlerinden ziyade, stratejik, yerli ve milli ekonomiyi güçlendirecek adımlarla mümkündür.
+
+Bu bütçe teklifi, Türk milletinin geleceğinin ipotek altına alınmaması adına radikal değişiklikler gerektirmektedir. Devletin, Türk varlığını sonsuz kılma ve Türk milletini çağdaş medeniyetler seviyesinin üzerine çıkarma misyonunu yerine getirebilmesi için, mali disiplin, şeffaflık ve milli menfaatleri önceliklendiren bir ekonomi yönetimi şarttır. Kaynakların, dışa bağımlılığı azaltacak, katma değerli üretime odaklanacak ve Türk gençliğine gerçek istihdam ve refah sağlayacak alanlara yönlendirilmesi elzemdir. Aksi takdirde, her yeni bütçe dönemi, borç sarmalının derinleştiği ve milli refahın eridiği bir dönemeç olmaktan öteye gidemeyecektir. Türk milletinin geleceği, rasyonel, milli ve sürdürülebilir bir mali planlama ile güvence altına alınmalıdır.
