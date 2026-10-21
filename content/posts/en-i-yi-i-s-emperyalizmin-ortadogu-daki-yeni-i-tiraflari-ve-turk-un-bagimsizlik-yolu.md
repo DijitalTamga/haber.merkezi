@@ -1,0 +1,13 @@
+---
+title: "'En İyi İş': Emperyalizmin Ortadoğu'daki Yeni İtirafları ve Türk'ün Bağımsızlık Yolu"
+date: 2026-10-21T22:52:10+03:00
+draft: false
+cover:
+    image: "https://media.cumhuriyet.com.tr/Archive/f905502d-59f4-467a-ab70-9a0ed2e5436f.jpg"
+---
+
+1. Eski ABD Başkanı Donald Trump'ın İran'la savaşa girmesini "yaptığı en iyi işlerden biri" olarak tanımlaması, uluslararası ilişkilerde maskelerin düştüğü anlardan biridir. Bu açıklama, bölge coğrafyamızda yıllardır yaşanan çatışmaların, müdahalelerin ve istikrarsızlığın ardındaki pervasız niyetleri açıkça ortaya koymaktadır. "Nükleer tehdit" gibi gerekçelerle meşrulaştırılmaya çalışılan bu tür eylemler, çoğu zaman çok daha derin ekonomik, siyasi ve stratejik çıkarların birer paravanı olarak karşımıza çıkmaktadır. Türk milleti, kendi jeopolitik alanında oynanan bu tür oyunları iyi okumak ve arka planındaki gerçek amaçları idrak etmek zorundadır. Zira bu tür müdahaleler, her zaman en büyük zararı bölge halklarına ve devletlerine vermektedir.
+
+2. Türkiye Cumhuriyeti'nin yanı başında, kadim Türk yurtlarının komşusu olan İran'a yönelik böylesi bir "başarılı savaş" ilanı, Türk dünyası için ciddi sonuçlar doğurma potansiyeli taşımaktadır. Bölgesel bir çatışma, enerji yollarından ticarete, demografik hareketlerden sınır güvenliğine kadar pek çok hayati alanda Türkiye'yi doğrudan etkileyecektir. Bu durum, küresel güçlerin kendi hegemonyalarını pekiştirme çabalarının, bölgenin tarihsel ve kültürel bağlarını hiçe saydığını bir kez daha göstermektedir. Türk milleti, kendi coğrafyasında yaratılan bu tür yapay gerilimlere karşı uyanık olmalı, dost ve düşman ayrımını milli çıkarları temelinde net bir şekilde yapmalıdır. Bölgenin istikrarı, dış müdahalelerle değil, bölgesel aktörlerin karşılıklı saygı ve çıkarlar temelinde geliştirecekleri diyalog ve iş birliği ile mümkündür.
+
+3. Bu pervasız açıklama, Türk milletine bir kez daha bağımsız ve güçlü bir dış politika, kendi ayakları üzerinde duran bir ekonomi ve caydırıcı bir savunma sanayii inşa etmenin ne denli hayati olduğunu hatırlatmaktadır. Ne batının ne de doğunun dayatmalarıyla hareket etmeyen, yalnızca kendi milli çıkarlarını gözeten bir Türkiye, hem bölgesinin hem de Türk dünyasının istikrar ve refah garantörü olacaktır. Bizler, "en iyi iş"lerinin kendi coğrafyamızda kan ve gözyaşı dökmek olduğunu düşünen emperyalist zihniyetlere karşı, kendi "en iyi iş"imizin Türk birliğini, gücünü ve refahını artırmak olduğunu bilmeliyiz. Türk'ün yolu, tam bağımsızlıktır ve bu yolda yürürken, bölgesel sorunlara kendi çözümlerimizi üretmek, dışarıdan dayatılan her türlü çatışma senaryosuna karşı dimdik durmak mecburiyetindeyiz.
