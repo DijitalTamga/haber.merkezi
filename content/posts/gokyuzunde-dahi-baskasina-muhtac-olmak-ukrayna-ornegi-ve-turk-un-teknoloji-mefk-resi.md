@@ -1,0 +1,13 @@
+---
+title: "Gökyüzünde Dahi Başkasına Muhtaç Olmak: Ukrayna Örneği ve Türk'ün Teknoloji Mefkûresi"
+date: 2026-10-24T09:55:41+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/10/23/145/0/6000/3000/644/322/60/0/190a159_ftp-1-mht8qwc7behq-8e25412aae66497f806d6c49cd90786b-1-046d3fe5da0d4c2aa7fae7f33701a472.jpg"
+---
+
+Ukrayna Savunma Bakanı'nın Starlink sistemine ilişkin yaptığı açıklama, modern savaş ve uluslararası ilişkilerdeki teknoloji bağımlılığının acı bir tablosunu sunuyor. Washington ile yaşanan gerilimlerin ardından hız kısıtlamasına uğrayan ve ardından yeniden "istikrarlı bağlantıya" kavuştuğu duyurulan bu sistem, bir ülkenin askeri operasyonları için hayati önem taşıyor. Bu durum, gökyüzünden alınan her sinyalin, her bilginin, bir başka gücün kontrolünde olmasının ne denli büyük bir güvenlik riski taşıdığını gözler önüne sermektedir. Bir ulusun savaş gibi en kritik anlarında dahi stratejik iletişiminin dış güçlerin insafına kalması, egemenlik tanımımızı yeniden düşünmemizi gerektiriyor.
+
+Türk milliyetçiliğinin temel düsturlarından biri, tam bağımsızlık ve egemenliktir. Ukrayna örneğinde görüldüğü üzere, en kritik altyapıların dahi yabancı bir gücün elinde olması, o ülkenin ulusal çıkarlarını ve savunma kapasitesini doğrudan tehdit etmektedir. Bir devletin, savaş zamanında dahi kendi iletişim ağlarını, kendi bilgi akışını bağımsız bir şekilde yönetememesi, onun "egemen" olma iddiasını zayıflatır. Bu tür bağımlılıklar, uluslararası satranç tahtasında zayıf bir piyon haline gelme riski taşır ve manipülasyona açık kapı bırakır. Türkiye Cumhuriyeti, bölgesindeki ve dünyadaki konumunu pekiştirmek istiyorsa, bu tür teknolojik zincirlerden tamamen kurtulmak zorundadır.
+
+Bu manzara, Türk milletine açık bir mesaj vermektedir: Kendi göbeğini kendi kesen, kendi teknolojisini üreten, uzayda dahi kendi varlığını tesis eden bir Türkiye hedefi vazgeçilmezdir. Savunma sanayimizdeki son yıllarda yakalanan ivme, kendi uydularımızı geliştirme çabaları, bu doğru yolda atılan önemli adımlardır. Ancak yeterli değildir. İletişim, siber güvenlik, yapay zeka ve uzay teknolojileri gibi stratejik alanlarda dışa bağımlılığı sıfıra indirmek, genç beyinlerimizi bu alanlara yönlendirmek, sadece ekonomik değil, aynı zamanda milli bir varoluş mücadelesidir. Türk gençliği, bilim ve teknoloji meşalesiyle aydınlanarak, atalarının cihan hakimiyeti mefkûresini, bu kez dijital ve uzay çağında yeniden yükseltme sorumluluğunu taşımaktadır. Unutulmamalıdır ki, gökyüzünde parlayan her Türk yıldızı, milletimizin bağımsızlık ve geleceğe dair sarsılmaz iradesinin bir nişanı olacaktır.
