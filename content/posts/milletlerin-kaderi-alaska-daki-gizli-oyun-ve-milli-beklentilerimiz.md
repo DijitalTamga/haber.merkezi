@@ -1,0 +1,13 @@
+---
+title: "Milletlerin Kaderi: Alaska'daki Gizli Oyun ve Milli Beklentilerimiz"
+date: 2026-10-24T19:13:05+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+1. Uluslararası enerji piyasaları ve jeopolitik dengeler, her geçen gün yeni ve çarpıcı gelişmelere sahne oluyor. Son olarak, Amerika Birleşik Devletleri'nde 25 milyar dolarlık devasa bir doğalgaz projesi olan Polar Train LNG'nin geleceği, şok edici iddialarla sarsıldı. Projenin eski CEO'sunun Financial Times'a yaptığı açıklamalar, Rus enerji devi Novatek'in, Washington'ın bilgisi ve onayı olmadan bu stratejik projeyi gizlice finanse ettiğini ve perde arkasından yönettiğini ortaya koyuyor. Bu gelişme üzerine Amerikalı yöneticilerin istifası, sadece bir ticari anlaşmazlığın ötesinde, uluslararası ilişkilerde güven ve egemenlik kavramlarının ne denli kırılgan olduğunu bir kez daha gözler önüne sermiştir.
+
+2. Bu tür hadiseler, milletlerin stratejik varlıkları üzerindeki yabancı nüfuz mücadelesinin acımasız bir örneğidir. Enerji, günümüz dünyasında sadece ekonomik bir kaynak değil, aynı zamanda ulusal güvenlik ve bağımsızlığın temel direğidir. Bir devletin kendi topraklarındaki hayati öneme sahip bir projeyi, başka bir gücün gizli kontrolüne bırakması veya bundan habersiz kalması, kabul edilemez bir zafiyet ve ulusal onur kırıcı bir durumdur. Rusya'nın bu hamlesi, büyük güçlerin uluslararası alanda kendi çıkarlarını dayatmak için başvurduğu karmaşık ve örtülü yöntemleri açıkça göstermektedir. Bu durum, her milletin, özellikle de kadim bir devlet geleneğine sahip Türk Milleti'nin, kendi varlıklarını ve geleceklerini koruma adına ne denli uyanık olması gerektiğini vurgulamaktadır.
+
+3. Türk Milleti olarak, bu gelişmeleri sadece uzaktaki bir hadise olarak değil, kendi bekamız için önemli dersler içeren bir vaka olarak ele almak zorundayız. Türkiye Cumhuriyeti, tarih boyunca nice büyük güç mücadelesinin merkezinde yer almış ve bağımsızlığını, egemenliğini her şeyin üzerinde tutmuştur. Milli enerji kaynaklarımızı (Karadeniz'deki doğal gaz keşifleri gibi) bizzat kendi imkanlarımızla işlemek, nükleer enerji santralleri kurarak dışa bağımlılığı azaltmak ve savunma sanayimizi milli imkanlarla güçlendirmek, bu tür gizli oyunlara karşı en büyük kalkanımızdır. Alaska'daki bu "gizli el" vakası, bizlere, milli egemenliğin yalnızca sınırlarda değil, aynı zamanda ekonominin, teknolojinin ve stratejik tüm varlıkların her santiminde savunulması gerektiğini bir kez daha hatırlatmıştır. Türkiye, kendi güçlü kadrolarıyla, şeffaf yönetimiyle ve milli menfaatleri her şeyin üstünde tutan bir anlayışla, bu tür tehditlerin karşısında sarsılmaz bir duruş sergilemeye devam edecektir.
