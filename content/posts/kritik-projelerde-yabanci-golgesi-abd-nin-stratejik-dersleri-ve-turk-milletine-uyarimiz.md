@@ -1,0 +1,13 @@
+---
+title: "Kritik Projelerde Yabancı Gölgesi: ABD'nin Stratejik Dersleri ve Türk Milletine Uyarımız"
+date: 2026-10-24T02:59:14+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Uluslararası ilişkilerde güven ve şeffaflık, özellikle stratejik öneme sahip projelerde hayati derecede önemlidir. Ancak zaman zaman, büyük güçlerin bile gözünden kaçan sinsi hamleler, milli çıkarları derinden etkileyebilir. Son olarak, ABD’nin Alaska’daki 25 milyar dolarlık dev doğalgaz projesi Polar Train LNG’de patlak veren skandal, bu gerçeği acı bir şekilde yüzümüze vurmuştur. Üst düzey Amerikalı yöneticilerin, projenin gizlice Rus enerji devi Novatek tarafından finanse edildiği ve kontrol edildiği iddiaları üzerine istifaları, küresel enerji ve güvenlik dengeleri açısından dikkat çekici bir olaydır.
+
+Habere göre, projenin eski CEO’su, Rus enerji devi Novatek’in Washington’ın onayı olmaksızın projeyi finanse ettiğini ve ipleri elinde tuttuğunu iddia etmektedir. Bu durum, yalnızca bir ticari anlaşmazlık olmaktan öte, ulusal güvenlik ve stratejik bağımsızlık açısından ciddi soruları beraberinde getirmektedir. Bir ülkenin kendi topraklarındaki devasa bir enerji projesinin, bir başka büyük gücün gizli kontrolüne geçebilmesi ihtimali, devletlerin stratejik varlıklarını koruma kapasiteleri üzerine düşündürücü bir gölge düşürmektedir. Enerji kaynakları, günümüz jeopolitiğinde sadece ekonomik birer kalem değil, aynı zamanda milli egemenliğin ve dış politika manevra alanının temel taşlarındandır. Rusya gibi küresel bir aktörün, ABD gibi bir rakibinin stratejik bir bölgesindeki enerji projesine bu denli sinsi bir şekilde nüfuz etmeye çalışması, uluslararası arenadaki güç mücadelesinin ne denli çetin ve çok boyutlu olduğunu açıkça göstermektedir.
+
+Bu olay, Türk milleti ve devleti için çok değerli dersler içermektedir. Türkiye olarak, coğrafyamızın ve enerji koridorları üzerindeki stratejik konumumuzun bilincinde olmalı, milli güvenliğimizi ve ekonomik bağımsızlığımızı tehdit edebilecek her türlü yabancı nüfuz ve sızma girişimine karşı azami dikkat ve önlem almalıyız. Kendi enerji projelerimizden teknolojik altyapımıza kadar her alanda milli denetimi ve sahiplenmeyi elden bırakmamak, stratejik ortaklıklar kurarken dahi milli çıkarlarımızı zedeleyebilecek gizli ajandalara karşı uyanık olmak zorundayız. Başkalarının tecrübelerinden ders çıkarmak, Türk devlet aklının ve milli iradesinin bir gereğidir. Unutmayalım ki, güçlü ve bağımsız bir Türkiye için, kritik varlıklarımızın tam kontrolü vazgeçilmezdir. Türk milletinin tamga vurduğu her proje, ancak Türk milletinin kontrolünde kalmalıdır.
