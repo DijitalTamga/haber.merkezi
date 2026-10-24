@@ -1,0 +1,13 @@
+---
+title: "Kendi Oyunlarımız Varken: Fransızların İthal Spor Tutkusu ve Bize Düşenler"
+date: 2026-10-24T19:55:55+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/10/22/908/0/4872/2436/644/322/60/0/c681857_upload-1-fahklruoqog0-grk3833406.jpg"
+---
+
+Fransa'nın 1938'de Amerikan futbolunu ülkesine ithal etme çabası ve günümüzde Stade de France'ta bir NFL maçının oynanacak olması, yalnızca bir spor etkinliğinden ibaret değildir. Bu durum, modern dünyada ulusların kendi özgün kültür ve değerlerine ne kadar sahip çıktığı sorusunu bir kez daha gündeme getiriyor. Batı'da dahi, kendi kadim spor ve geleneklerine sahip ülkelerin, popüler kültür rüzgârına kapılarak başkalarının "oyunlarını" benimseme hevesi, köklerinden uzaklaşma riskini barındırır. Bir milletin ruhu, onun dili, sanatı ve elbette ki sporunda saklıdır. Başkalarının tamgasını taşımak yerine, kendi öz değerlerimizi yüceltmek, çağdaş bir ulus olmanın yadsınamaz şartıdır.
+
+Bu tür ithal spor ve eğlence akımları, ilk bakışta masumane bir "kültürel alışveriş" gibi görünse de, uzun vadede milli kimliğin zayıflamasına yol açabilir. Kendi özgün sporlarımız, oyunlarımız ve geleneksel eğlencelerimiz varken, yabancı bir kültürün sembolü haline gelmiş spor dallarına bu denli prim vermek, sadece bir tercih değil, aynı zamanda bir duruş eksikliğidir. Bir milletin gücü, sadece ekonomik ya da askeri kudretinde değil, aynı zamanda kendi özgün değerlerini koruma ve yaşatma azminde yatar. Kendi tamgasını mühürleyen, başkalarının taklitçisi olmayan bir ulus, geleceğe sağlam adımlarla ilerler. Fransa örneği bize, kendi değerlerimize sahip çıkmanın, onları gelecek nesillere aktarmanın ne denli hayati olduğunu bir kez daha hatırlatıyor.
+
+Bizim Türk milleti olarak, kadim tarihimizden ve zengin kültürümüzden miras aldığımız sayısız değerimiz var. Güreşimizden atlı ciritimize, okçuluğumuzdan geleneksel oyunlarımıza kadar, kendi köklerimizden beslenen bir miras... Bu miras, batının dayattığı popüler kültüre boyun eğmek yerine, onu yeniden canlandırma ve modernize ederek dünyaya tanıtma sorumluluğunu omuzlarımıza yüklüyor. Sen Dijital Tamga olarak vurgulamak isteriz ki; kendi özgün değerlerimizle var olmak, onları yaşatmak ve gelecek nesillere aktarmak, milli bağımsızlığımızın ve onurumuzun temelini oluşturur. Başkalarının ithal oyunlarıyla zaman kaybetmek yerine, kendi ruhumuzu yansıtan, bizi 'biz' yapan değerlere sarılmalıyız. Unutmayalım ki, kendi tamgasına sahip çıkan milletler, tarihin güçlü sahnesinde yerini alır. İthal edilen değil, üreten ve kendi özgünlüğünü dünyaya sunan bir millet olmak, en büyük hedefimiz olmalıdır.
