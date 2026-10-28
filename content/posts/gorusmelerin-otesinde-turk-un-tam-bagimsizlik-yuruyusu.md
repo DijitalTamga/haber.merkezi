@@ -1,0 +1,13 @@
+---
+title: "Görüşmelerin Ötesinde: Türk'ün Tam Bağımsızlık Yürüyüşü"
+date: 2026-10-28T19:58:32+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2498000/erdogan-trump-aa-2499297.jpg"
+---
+
+Cumhurbaşkanı Erdoğan'ın ABD Başkanı Trump ile gerçekleştirdiği telefon görüşmesi, ikili ilişkilerin ve bölgesel/küresel gelişmelerin ele alındığı standart bir diplomatik temas olarak duyuruldu. Ancak Türk Devleti'nin tarihsel misyonu ve jeopolitik konumu göz önüne alındığında, bu tür temaslar basit bir telefon görüşmesinin ötesinde anlamlar taşır. Zira Türk'ün masası, coğrafyasındaki ve küresel düzlemdeki güç dengelerinin en hassas noktasıdır. Bu görüşmeler, sadece bugünün değil, geleceğin de şekillendiği kritik anlardır. Türk Milleti, kendi kaderini tayin etme iradesini tarihin her döneminde göstermiştir. Bu nedenle, hangi düzeyde olursa olsun, tüm diplomatik ilişkilerin tek önceliği, Türk'ün yüksek menfaatleri ve tam bağımsızlık ilkesi olmalıdır.
+
+İkili ilişkiler başlığı altında ele alınan konuların, genellikle küresel güçlerin bölgemizdeki hedefleriyle örtüşmesi, Türk dış politikasının daimi sınavıdır. Emperyalist emellerin kesişim noktasındaki Anadolu coğrafyası, Türk Devleti'ni sürekli bir denge politikası yürütmeye itmektedir. Bölgesel ve küresel gelişmelerin değerlendirilmesi ise, dost görünen düşmanların veya çıkar odaklı müttefiklerin Türk'ün beka mücadelesindeki rolleri üzerine dikkatle eğilmeyi gerektirir. Türk Devleti, küresel güçlerin oyun tahtası değil, kendi bölgesinin ve kendi kadim coğrafyasının doğal lideridir. Bu bilinçle, her türlü dayatmaya ve yönlendirmeye karşı duruş sergilenmelidir. Dış politika, kısa vadeli çıkarların ötesinde, milli bir strateji ve uzun vadeli bir vizyonla belirlenmelidir. Türk'ün kendi eliyle ördüğü, kendi aklıyla yönettiği bir dış siyaset, gerçek bağımsızlığın yegane güvencesidir.
+
+Türk Milleti, tarih boyunca büyük badireleri aşarak bugünlere gelmiştir. Geçmişten ders çıkararak, geleceği inşa etme sorumluluğuyla hareket etmelidir. Washington'dan veya başka bir başkentten gelen telefonlar, Türk'ün kutlu yürüyüşünü etkilememelidir. Ekonomik bağımsızlıktan askeri güce, kültürel kimlikten teknolojik özerkliğe kadar her alanda 'tam bağımsızlık' ilkesi tavizsiz uygulanmalıdır. Türk Devleti'nin gücü, sadece kendi imkan ve kabiliyetlerinden beslenmeli, boyunduruk kabul etmeyen haysiyetinden ödün vermemelidir. Unutulmamalıdır ki, büyük Türk Milleti, kendi kaderini başkalarının eline bırakmayacak kadar asil, kendi istikbalini kendi elleriyle çizecek kadar kudretlidir. Görüşmelerin ötesinde, Türk'ün bekası ve şanlı geleceği yatmaktadır.
