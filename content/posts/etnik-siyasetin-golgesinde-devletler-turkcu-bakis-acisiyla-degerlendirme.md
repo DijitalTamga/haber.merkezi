@@ -1,0 +1,13 @@
+---
+title: "Etnik Siyasetin Gölgesinde Devletler: Türkçü Bakış Açısıyla Değerlendirme"
+date: 2026-11-02T01:57:39+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2026/11/01/multimedia/01int-israel-arab-parties-hfkw/01int-israel-arab-parties-hfkw-mediumSquareAt3X.jpg"
+---
+
+Orta Doğu coğrafyasında siyasi çalkantılar ve güç dengesi arayışları hız kesmeden devam ediyor. Son gelişmelerden biri de İsrail iç siyasetinde yaşandı. Ülke parlamentosu Knesset'te yapılan son seçimlerde, Arap kökenli partiler rekor kırarak 19 sandalye kazandı. Bu sonuçla birlikte, söz konusu partilerin mevcut Başbakan Binyamin Netanyahu hükümetini düşürme hedefiyle muhalif gruplarla işbirliği yapma niyetinde oldukları açıkça belirtiliyor. Bu durum, İsrail siyaset sahnesinde yeni bir dönemin işaretçisi olabilirken, bölgedeki etnik ve siyasi kimliklerin devlet içindeki rollerini bir kez daha gözler önüne seriyor.
+
+Bu gelişme, milletlerarası ilişkilerde ve devletlerin iç dinamiklerinde etnik kimliğin belirleyici rolünü bir kez daha gözler önüne sermektedir. Kendi milli kimliğini tanımlamış ve bu kimlik üzerine devletini inşa etmiş her millet için, farklı etnik grupların siyasal alandaki organize varlığı, zaman zaman iç bütünlük açısından çeşitli sınamalar doğurabilir. Burada esas olan, devletin kendi ulusal karakterini ve egemenliğini koruma iradesidir. Bir coğrafyanın kaderini tayin eden temel unsur, milletin birliği ve devletin dirayetidir. İsrail'deki bu tablo, etnik aidiyetlerin siyasi arenada nasıl bir güç odağı haline gelebildiğini, iktidar mücadelelerini nasıl derinden etkilediğini ve devletin ulusal hedefleri üzerindeki potansiyel etkilerini somut bir şekilde göstermektedir. Her devlet, kendi içindeki farklılıkları yönetirken, ulusal birliğini ve bekasını her şeyin üzerinde tutmak zorundadır.
+
+Böylesine hassas ve çalkantılı bir coğrafyada yaşayan Türk Milleti olarak bizler için bu tür gelişmeler her zaman ibret verici niteliktedir. Milletlerin varlık mücadelesinde, milli şuurun ve ortak gayenin ne denli önemli olduğunu bir kez daha hatırlatır. Türk Milleti, binlerce yıllık devlet geleneği ve sarsılmaz milli kimliğiyle, çevresindeki tüm bu dinamikleri dikkatle izlemekte ve kendi ulusal çıkarlarını her türlü gelişmenin üzerinde tutmaktadır. Dijital çağın getirdiği yeni meydan okumalara rağmen, Türk Tamgası'nı yücelten irade, köklü geçmişimizden aldığı güçle geleceğe yürümektedir. Türk'ün Türk'ten başka dostu olmadığı gerçeğiyle, birliğimizi ve beraberliğimizi daima diri tutmalı, iç ve dış tehditlere karşı çelikten bir kalkan olmaya devam etmeliyiz. Unutmayalım ki, güçlü ve birleşik bir Türk Devleti, bölgemizin ve dünyamızın geleceğinde belirleyici rol oynayacaktır.
