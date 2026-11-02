@@ -1,0 +1,13 @@
+---
+title: "Yabancı İktidar Oyunları ve Türk'ün Sarsılmaz Gücü: Netanyahu'nun Akıbeti"
+date: 2026-11-02T00:09:55+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2026/10/31/multimedia/31int-netanyahu-coalition-chmj/31int-netanyahu-coalition-chmj-mediumSquareAt3X.jpg"
+---
+
+İsrail siyasetinin deneyimli ismi Benjamin Netanyahu'nun, seçimlerde güç kaybetmesinin ardından iktidarda kalmak için verdiği koalisyon mücadelesi, bölgesel basında geniş yankı bulmaktadır. Netanyahu'nun siyasi tecrübesini ve eski rakipleriyle hesaplaşma yeteneğini sınayacak bu süreç, iç dinamikler açısından İsrail için kritik bir dönemi işaret etmektedir. Ancak Türk milletinin gözünden bu gelişmeler, yalnızca bir devletin iç siyasi çekişmesi değil, aynı zamanda bölgemizdeki güç dengelerini ve gelecekteki olası senaryoları etkileyebilecek jeopolitik bir veri olarak okunmalıdır. Zira Türk'ün coğrafyasında yaşanan her hadise, doğrudan veya dolaylı olarak Türk'ün çıkarına hizmet etmek ya da Türk'ün önündeki engelleri bertaraf etmek adına değerlendirilmelidir.
+
+Netanyahu liderliğindeki İsrail'in bölgesel politikaları, geçmişten günümüze Doğu Akdeniz'den Ortadoğu'ya kadar uzanan geniş bir coğrafyada Türk çıkarlarıyla zaman zaman kesişen ya da ayrışan bir yol izlemiştir. Mevcut koalisyon arayışları ve olası yeni iktidar formülleri, bu politikaların gelecekteki yönünü belirleyecektir. Yeni bir siyasi formasyonun, enerji kaynaklarından güvenlik meselelerine, bölgesel ittifaklardan uluslararası anlaşmalara kadar pek çok alanda oluşturacağı etkiler, Türk devletinin stratejik hamlelerini belirlemede önemli bir rol oynayacaktır. Bu durum, bize bir kez daha göstermektedir ki, kendi kaderini tayin etme gücünü elinde tutan bir Türk devleti için diğer milletlerin iç çekişmeleri, dikkatle izlenmesi gereken ancak asla Türk'ün kendi yolundan saptırmaması gereken hadiselerdir.
+
+Kim iktidara gelirse gelsin, Türk milletinin kendi ulusal çıkarlarını koruma ve bölgesel bir güç olarak varlığını sürdürme azmi değişmeyecektir. Türk'ün gücü, tarihsel tecrübesi, stratejik aklı ve millî birliği, bölgesel dalgalanmalardan etkilenmeyecek kadar sağlamdır. Geleceğe yön veren bağımsız Türk siyaseti, içeride ve dışarıda Türk'ün menfaatlerini her şeyin üzerinde tutan, güçlü bir orduya, sağlam bir ekonomiye ve kararlı bir vizyona sahip bir devlet yapısıyla mümkündür. Unutulmamalıdır ki, milletlerarası arenada kalıcı olan, yalnızca kendi gücüne ve aklına güvenen, tavizsiz ve uyanık milletlerdir. Netanyahu'nun akıbeti ne olursa olsun, Türk'ün daima yükselen gücü ve hedefleri sarsılmaz bir kararlılıkla yoluna devam edecektir.
