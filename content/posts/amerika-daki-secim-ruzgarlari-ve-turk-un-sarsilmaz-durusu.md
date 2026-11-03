@@ -1,0 +1,12 @@
+---
+title: "Amerika'daki Seçim Rüzgarları ve Türk'ün Sarsılmaz Duruşu"
+date: 2026-11-03T22:07:51+03:00
+draft: false
+
+---
+
+Bugünlerde dünya gündemi, Atlantik ötesinden gelen haberlerle çalkalanıyor: Amerika Birleşik Devletleri'nde milyonlarca seçmen ara seçimler için sandık başında. BBC'nin analizleri, bu seçimlerin ülkenin geleceği için farklı senaryoları beraberinde getirebileceğine işaret ediyor. Türk milleti olarak, kadim tarihimizin bize öğrettiği ferasetle, küresel güçlerin iç dinamiklerini dikkatle takip ederiz. Bu tür süreçler, yalnızca bir devletin kendi iç meselesi olmanın ötesinde, dünya jeopolitiğini, ekonomik dengeleri ve uluslararası ilişkiler ağını derinden etkileme potansiyeli taşır. Ancak bizim için aslolan, bu çalkantılı süreçleri birer ders olarak okumak, kendi milli stratejilerimizi bu gözlemle tahkim etmektir. Biz ne Amerikan siyasetinin taraftarıyız ne de bu denklemin figüranı; biz sadece kendi yolunda ilerleyen büyük Türk milletiyiz.
+
+Amerika'daki iktidar dengelerindeki olası değişimler, şüphesiz ki küresel politikaların tonunu değiştirebilir. Ancak hangi parti, hangi lider iktidara gelirse gelsin, her devletin öncelikli hedefi kendi ulusal çıkarlarını korumak ve geliştirmektir. Bu, siyasetin doğasında vardır. Dolayısıyla, Amerika'nın iç siyasetindeki her dalgalanmayı, kendi bekamız ve istikbalimiz için bir fırsat veya tehdit potansiyeli olarak değerlendirmek durumundayız. Biz Türkler için mühim olan, dışarıdan gelecek her türlü etkiye karşı dirençli bir milli iradeye sahip olmak, milli savunmamızı ve ekonomimizi güçlendirerek tam bağımsızlık ilkesini daima yüce tutmaktır. Bir "süper gücün" iç siyasetindeki belirsizlikler, bize kendi öz gücümüzün kıymetini ve stratejik özerkliğimizin vazgeçilmezliğini bir kez daha hatırlatır.
+
+Sonuç olarak, Amerika'daki seçimler, dünyanın gidişatını merak eden her akıl için önemli bir gözlem alanıdır. Fakat biz Türk milleti için asıl önemli olan, bu tür harici gelişmeler karşısında kendi milli hedeflerimizden sapmamak, Türk'ün kutlu yürüyüşünü kesintiye uğratmamaktır. Geçmişin tecrübeleri bize göstermiştir ki, dış güçlerin iç çekişmelerine bel bağlamak veya onların rüzgarına göre yön tayin etmek, milli bekamız için büyük riskler barındırır. Türk milleti, kendi kadim irfanıyla, kendi evlatlarıyla ve kendi değerleriyle yücelen bir millettir. Bugün de yarın da, ne olursa olsun, istiklalini ve istikbalini kimseye emanet etmeyecek, kendi mukadderatını kendisi çizecektir. Daima Türk, daima ileri!
