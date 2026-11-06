@@ -1,0 +1,13 @@
+---
+title: "Maske Düşüyor: BAE'nin Sudan'daki Gölgesi, BM Adaylığını Nasıl Vuruyor?"
+date: 2026-11-06T00:41:08+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2026/11/05/multimedia/05int-sudan-lana-2-kgtq/05int-sudan-lana-2-kgtq-mediumSquareAt3X.jpg"
+---
+
+Birleşmiş Milletler gibi küresel bir kurumda en üst düzey pozisyonlara talip olan isimlerin, sadece kişisel yetkinlikleri değil, temsil ettikleri ülkelerin uluslararası arenadaki sicili de yakından incelenir. Birleşik Arap Emirlikleri'nin (BAE) önde gelen diplomatlarından Lana Nusseibeh'in BM Genel Sekreterliği adaylığı da tam bu noktada, ülkesinin Sudan'daki iddia edilen rolüyle çarpışıyor. Nusseibeh'in, BAE'nin Sudan'daki müdahalesini şiddetle reddetme çabası, bu önemli adaylık sürecinde bir açmaz yaratmış durumda. Bu durum, küresel arenada rol üstlenme arayışındaki devletlerin ve temsilcilerinin, kendi eylemleriyle yüzleşme zorunluluğunu bir kez daha gözler önüne seriyor.
+
+BAE'nin Sudan'da oynadığı iddia edilen rol, yıllardır bölgedeki istikrarsızlığın ve iç çatışmaların ana nedenlerinden biri olarak gösteriliyor. Özellikle körfez ülkelerinin Afrika'da artan nüfuz arayışları, çoğu zaman yerel dinamiklere duyarsız kalarak ve hatta silahlı grupları destekleyerek bölgeyi daha da derin bir kaosa sürükleme potansiyeli taşıyor. Türk milliyetçisi bir bakış açısıyla, coğrafyamızın doğal uzantısı olan Afrika kıtasında yaşanan bu tür dış müdahaleler, sadece o ülkelerin değil, tüm bölgenin huzurunu tehdit etmektedir. Bir yandan küresel barış ve işbirliği platformlarında liderlik iddiasında bulunurken, diğer yandan bir ülkenin içişlerine karışarak yıkıma zemin hazırlamak, uluslararası diplomasinin temel ilkeleriyle bağdaşmamaktadır. Nusseibeh'in bu "gölge" rolü inkar etmesi, etik bir diplomasi anlayışından ne kadar uzaklaşıldığının acı bir göstergesidir.
+
+Lana Nusseibeh'in adaylığının bu krizle yüzleşmesi, Birleşmiş Milletler'in ve genel olarak uluslararası sistemin güvenilirliği açısından kritik bir sınavdır. Küresel yönetişim mekanizmalarında görev alacak kişilerin, temsil ettikleri devletlerin eylemleri konusunda tam bir şeffaflık ve hesap verebilirlik sergilemesi beklenir. Aksi takdirde, BM gibi kurumlar, sadece güçlülerin çıkarlarını temsil eden, ikiyüzlü bir yapının parçası olmaktan öteye gidemez. Türk milleti olarak bizler, tarihin her döneminde hakkaniyet ve adaleti savunmuş bir milletin evlatlarıyız. Bu nedenle, uluslararası ilişkilerde çifte standartlara ve samimiyetsiz yaklaşımlara karşı durmak, milli duruşumuzun bir gereğidir. BAE örneği, dış politikada dürüstlüğün ve tutarlılığın, koltuk sevdasıyla değil, evrensel değerlere bağlılıkla inşa edilmesi gerektiğini bir kez daha hatırlatmaktadır.
