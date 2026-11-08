@@ -1,0 +1,13 @@
+---
+title: "Kırılgan Zenginlik, Keskineşen Gerilimler: Türk'ün Rasyonel Duruşu"
+date: 2026-11-08T09:51:07+03:00
+draft: false
+cover:
+    image: "https://image.dunya.com/rcman/Cw1280h720q95gc/storage/files/images/2026/11/05/petrol-w6qe_cover.jpg"
+---
+
+Suudi Arabistan'ın petrol üretiminin kalbi konumundaki Doğu Eyaleti'nde yaşanan son balistik füze alarmı, Ortadoğu coğrafyasındaki kronik istikrarsızlığın ve bu istikrarsızlığın küresel ekonominin kilit noktalarına ne denli yakın olduğunun yeni bir göstergesidir. Yemen'deki Husiler tarafından fırlatılan füzenin, Suudi öncülüğündeki askeri koalisyonca başarıyla önlenmesiyle büyük bir felaketin önüne geçilmiş olsa da, bu tür olaylar bölgenin üzerine çöken jeopolitik karanlığı bir kez daha aydınlatmaktadır. Petrol gibi hayati bir kaynağın tam merkezinde yaşanan bu gerilimler, küresel ekonomiyi doğrudan etkileme potansiyeli taşırken, bölgedeki aktörlerin kendi iç çatışmalarının ve dış güçlerle olan bağımlılık ilişkilerinin yarattığı sarmalı gözler önüne serer.
+
+Arap Yarımadası'nın derinliklerinde süregiden bu düşük yoğunluklu savaşlar ve güvenlik krizleri, petrolden gelen devasa gelirlere rağmen kalıcı bir istikrar ve gerçek bir özgüç tesis edilemediğinin açık kanıtıdır. Milyarlarca dolarlık servetin, milli askeri kapasite ve teknolojik bağımsızlık yerine, çoğu zaman dışarıdan alınan silahlar ve vekalet savaşları aracılığıyla tüketildiği bir tablo ile karşı karşıyayız. Bu durum, kaynak zenginliğinin her zaman milli güvenlik ve stratejik derinlikle eşdeğer olmadığını, hatta kimi zaman bir 'lanet'e dönüşebileceğini göstermektedir. Coğrafyanın kadim sorunları, dış müdahalelerle körüklenerek, bölge halklarını bitmek bilmeyen bir kaosun içine sürüklemektedir. Bu tablo, akılcı ve milli çıkarları merkeze alan bir dış politika yerine, ideolojik veya mezhepsel saplantıların bölgeyi nasıl felakete sürükleyebileceğinin hazin bir örneğidir.
+
+Türk Milleti olarak bizler, bu tür bölgesel krizleri daima soğukkanlılıkla ve milli çıkarlarımız ekseninde değerlendirmek zorundayız. Yakın coğrafyamızdaki her türden gerilim, doğrudan veya dolaylı olarak bizi de etkileme potansiyeline sahiptir. Petrol fiyatlarındaki dalgalanmalardan bölgesel güvenlik dengelerine, göç hareketlerinden ekonomik istikrarsızlığa kadar geniş bir yelpazede bu etkileşimi görebiliriz. Bu nedenle, Türk Devleti'nin temel hedefi, bölgedeki bu kırılgan yapıya karşı kendi milli savunma, enerji ve ekonomik stratejilerini tahkim etmek, teknolojik bağımsızlığını her alanda pekiştirmektir. Başkalarının çatışmalarına taraf olmak yerine, kendi özgücümüzle bölgede istikrarın ve barışın teminatı olmak, geleceğimizin teminatıdır. Türk'ün akılcı duruşu ve stratejik öngörüsü, bu kaotik ortamda bir kutup yıldızı gibi yol göstericidir.
