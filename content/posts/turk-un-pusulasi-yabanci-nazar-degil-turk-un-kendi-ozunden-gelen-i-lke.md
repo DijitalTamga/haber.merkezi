@@ -1,0 +1,15 @@
+---
+title: "Türk'ün Pusulası: Yabancı Nazar Değil, Türk'ün Kendi Özünden Gelen İlke"
+date: 2026-11-10T10:41:54+03:00
+draft: false
+cover:
+    image: "https://media.cumhuriyet.com.tr/Archive/9fe043b2-fb51-4206-b29b-1c2f49c0a402.jpg"
+---
+
+ABD'nin Ankara Büyükelçisi Tom Barrack'ın, Mustafa Kemal Atatürk'ü vefatının 88. yıldönümünde anması ve "Yurtta sulh, cihanda sulh" ilkesini hatırlatması, diplomatik nezaket çerçevesinde not edilmiştir. Şüphesiz ki, Türk ırkının yetiştirdiği en büyük önderlerden biri olan Atatürk'ün evrensel dehalığına yapılan bu göndermeler önemlidir. Ancak Ulu Önderimizin Türk Milleti'ne armağan ettiği bu derin ilkeler, sadece diplomatik bir söylemin konusu değil, bizzat Türk'ün kendi varoluşunun ve geleceğinin teminatıdır. Bu ilkelerin hakiki anlamı ve uygulama biçimi, harici nazarların değil, bizzat Türk'ün kendi şuurunun ve iradesinin eseridir.
+
+"Yurtta sulh, cihanda sulh" ilkesi, yüzeysel bir pasifizmden çok daha öte, Türk milliyetçiliğinin temel dinamiklerinden beslenen stratejik bir yaşam felsefesidir. "Yurtta sulh", Türk vatanında yaşayan Türk evlatlarının birliğini, dirliğini ve ülkü birliğini ifade eder. Bu, iç karışıklıklardan uzak, milli egemenliğin tam olarak sağlandığı, Türk'ün Türk'le omuz omuza vererek güçlü bir devlet ve millet yapısı oluşturduğu bir düzeni işaret eder. Türk'ün kendi öz yurdunda huzur içinde ve güçlü bir şekilde var olması, "Yurtta sulh"un en temel gereğidir. "Cihanda sulh" ise, Türk'ün dünya sahnesinde onurlu bir yer edinme, kendi menfaatlerini koruma ve haksız savaşlardan uzak durma çabasını anlatır. Ancak bu, Türk'ün haklarından vazgeçtiği veya zayıflığını gösterdiği anlamına gelmez; tam aksine, güçlü bir duruşla dünya barışına kendi milli çıkarları doğrultusunda katkıda bulunma iradesidir. Türk, barışseverdir; ancak gerektiğinde varlığını ve haklarını savunmaktan asla çekinmez.
+
+Bu ilkelerin harici temsilciler tarafından hatırlatılması, Atatürk'ün mirasının ve Türk devlet geleneğinin dünya nezdindeki saygınlığını gösterir. Ne var ki, bu ilkelerin gerçek mana ve ruhunu kavramak, yalnızca Türk'e nasip olmuştur. Zira bu ilkeler, Türk'ün asil tarihi, kadim kültürü ve ırkının verdiği çelik iradesiyle yoğrulmuştur. Yabancı bir elçinin beyanatı, Türk'ün yolunu belirleyici bir işaret olmaktan çok, Türk'ün zaten bildiği, yaşadığı ve yaşattığı bir gerçeğin teyididir. Türk Milleti, kendi Ulu Önderinin çizdiği yolda, kendi öz gücüyle, kendi istikametini tayin etmeye devam edecektir. Bizim pusulamız, Türk'ün özünden, çağlar ötesinden gelen milli bilincimizden ve büyük önderlerimizin sarsılmaz iradesinden ibarettir.
+
+Sen Dijital Tamga olarak, Türk'ün tamgasını taşıyan her ilkenin, bizzat Türk'ün kendi eseri ve milli iradesinin bir tezahürü olduğunu bir kez daha vurgularız. Atatürk'ün "Yurtta sulh, cihanda sulh" şiarı, dünden bugüne ve yarınlara dek Türk'ün bağımsızlık, haysiyet ve varoluş mücadelesinin değişmez meşalesi olacaktır. Bu meşalenin ışığında yürüyen Türk Milleti, kendi kaderini kendi elleriyle yazmaya, kendi iradesiyle yön vermeye devam edecektir.
