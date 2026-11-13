@@ -1,0 +1,13 @@
+---
+title: "Rusya'nın Avrupa Hamlesi: Tarihin Tekrarı mı, Türk Asırının Fırsatı mı?"
+date: 2026-11-13T23:59:32+03:00
+draft: false
+cover:
+    image: "https://img.lemde.fr/2026/11/10/552/0/5000/2500/644/322/60/0/899076b_ftp-1-7dh0k9ndn0yb-2026-11-10t090843z-1947322998-rc2xkoa94tre-rtrmadp-3-ukraine-crisis-talks-abu-dhabi.JPG"
+---
+
+Uluslararası jeopolitika, son dönemde yaşanan köklü değişimlerle yeni bir şekil almakta. Amerika Birleşik Devletleri’nin iç siyasi dinamiklerinin tetiklediği süreçte, Rusya’nın Avrupa güvenlik mimarisini yeniden şekillendirme arayışı, dikkatle izlenmesi gereken kritik bir gelişmedir. Kremlin'in Avrupa ülkelerine, Belarus ve Kuzey Kore ile imzaladığına benzer "karşılıklı yardım" anlaşmaları önermesi, yalnızca Batı bloğunun içindeki ayrışmanın bir sonucu değil, aynı zamanda bölgemizde uzun vadeli denge ve güç ilişkilerini derinden etkileyebilecek bir hamledir. Türk milleti olarak bu tabloyu sadece bir Avrupa sorunu olarak değil, Doğu Avrupa'dan Hazar'a, Karadeniz'den Akdeniz'e uzanan geniş coğrafyamızın geleceğini doğrudan ilgilendiren bir mesele olarak ele almak zorundayız.
+
+Rusya'nın bu teklifi, tarih sahnesinde defalarca gördüğümüz bir güç stratejisinin modern yansımasıdır. "Karşılıklı yardım" adı altında sunulan bu anlaşmalar, aslında imzalandığı devletlerin bağımsız iradelerini belirli ölçülerde ipotek altına alma, dış politikalarını Moskova eksenine çekme ve nihayetinde bir etki alanı oluşturma arayışıdır. Belarus ve Kuzey Kore örnekleri, bu tür "yardımlaşmaların" sonuçlarının bağımsızlık ve egemenlik açısından ne anlama geldiğini açıkça göstermektedir. Kadim Türk yurdu Kırım'dan Kafkaslar'a, Orta Asya'ya uzanan coğrafyalarda Rusya ile tarihsel etkileşimleri olan bir millet olarak, bu tür söylemlerin altında yatan gerçek niyetleri iyi okumak bizim için bir zorunluluktur. Avrupa’nın bu 'yardım' tekliflerine temkinli yaklaşması ve tarihsel tecrübelerden ders çıkarması elzemdir; zira güç boşlukları, daima yeni müdahalelere kapı aralar.
+
+Bu yeni jeopolitik denklemde, Türk milleti kendi stratejik derinliğini ve bağımsızlığını korumak zorundadır. Ne Amerika’nın ne de Rusya’nın tek taraflı dayatmalarıyla şekillenmeyecek, kendi milli menfaatlerini ve Türk dünyasının geleceğini önceleyen bir dış politika, vazgeçilmezdir. Türkiye, güçlü ordusu, dinamik ekonomisi ve köklü devlet geleneği ile sadece bölgesel değil, küresel güç dengelerinde de kilit bir aktördür. Başkalarının çizdiği sınırlar içinde kalmak yerine, kendi tamgasını vuran, kendi yolunu çizen bir Türkiye, sadece kendisi için değil, tüm Türk dünyası için de bir umut ve güç kaynağı olacaktır. Küresel satranç tahtasında başkalarının piyonu değil, oyun kurucusu olma vizyonu, milli geleceğimizin teminatıdır.
