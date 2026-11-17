@@ -1,0 +1,13 @@
+---
+title: "Bölücülüğe Geçit Yok: Türkiye'nin Üniter Yapısına Tamga Vurulan Kararlılık"
+date: 2026-11-17T10:01:40+03:00
+draft: false
+cover:
+    image: "https://dijitaltamga.github.io/haber.merkezi/default.png"
+---
+
+Güneydoğu Anadolumuzun kadim Türk şehirlerinden Diyarbakır'da, Türkiye Cumhuriyeti'nin varoluş ilkesi olan üniter yapısına ve toprak bütünlüğüne açıkça aykırı düşen "Kürdistan Ulusal İttifakı" adı altında faaliyet gösteren bir yapılanmaya yönelik kapsamlı bir operasyon düzenlenmiş, çok sayıda kişi hakkında gözaltı kararı verilmiştir. Devletimizin bekası ve milletimizin birliği adına atılan bu kararlı adım, Türk yurdunun her köşesinde bölücülüğe karşı gösterilen sıfır toleransın açık bir nişanesi niteliğindedir. Türkiye Cumhuriyeti sınırları içerisinde, anayasamızda da belirtildiği üzere, tek bir millet, tek bir devlet ve tek bir vatandan söz etmek esastır. Bu temel ilkeye aykırı her türlü isimlendirme ve oluşum, meşruiyetini yitirmiş ve hukuken yok hükmündedir.
+
+Bu tür sözde "ittifaklar" veya "oluşumlar", yüzlerce yıldır Türk'ün vatanı olan bu coğrafyada etnik temelli ayrımcılığı körükleyerek, milli birliğimize dinamit koymayı hedeflemektedir. Türk milleti, kadimden beri bu topraklarda kardeşçe yaşamış, devletiyle ve milletiyle tek vücut olmuştur. Gazi Mustafa Kemal Atatürk'ün önderliğinde kurulan modern Türkiye Cumhuriyeti, tebaayı millet yapan, ortak bir tarih ve kader birliğine dayalı bir ulus devletidir. Bu ulus devletin coğrafi ve siyasi bütünlüğü asla tartışılamaz, sorgulanamaz. Diyarbakır'da ortaya çıkan bu tür ayrılıkçı hareketler, sadece hukuki değil, aynı zamanda milli vicdanda da karşılık bulmayacak, Türk milletinin bin yıllık kardeşliğini ve birliğini asla bozamayacaktır. Bu operasyon, devletimizin, Türk milletinin üzerinde yükselen bu şer odaklarına karşı asla müsamaha göstermeyeceğinin net bir ifadesidir.
+
+Sen Dijital Tamga olarak; devletimizin bağımsızlığına, milletimizin bölünmez bütünlüğüne ve vatanımızın birliğine kasteden her türlü girişimin karşısında dimdik duracağımızı bir kez daha vurguluyoruz. Güvenlik güçlerimizin ve yargı organlarımızın bu konudaki kararlı tutumunu sonuna kadar destekliyoruz. Türkiye Cumhuriyeti, aziz şehitlerimizin kanıyla sulanmış bu topraklar üzerinde ilelebet payidar kalacak, tek bayrak, tek vatan, tek devlet ve tek millet ideali etrafında birleşen Türk milleti, hiçbir ayrılıkçı hevese pirim vermeyecektir. Bölücülük yapanlar bilmelidir ki, Türk devleti her zaman var ve kararlıdır; Türk yurdunda fitneye ve ayrılığa asla geçit verilmeyecektir. Milli birliğimizin ve devletimizin bekasının yılmaz savunucusu olmaya devam edeceğiz.
