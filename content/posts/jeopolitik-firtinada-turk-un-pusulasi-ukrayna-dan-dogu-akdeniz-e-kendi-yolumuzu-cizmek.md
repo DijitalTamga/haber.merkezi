@@ -1,0 +1,13 @@
+---
+title: "Jeopolitik Fırtınada Türk'ün Pusulası: Ukrayna'dan Doğu Akdeniz'e Kendi Yolumuzu Çizmek"
+date: 2026-11-17T18:51:13+03:00
+draft: false
+cover:
+    image: "https://www.youtube.com/embed/ZnhXVLSEizw"
+---
+
+1. Dünya, büyük güçlerin kıyasıya mücadelesine sahne olan bir satranç tahtasına dönmüş durumda. Her bir hamle, küresel dengeleri yeniden şekillendirirken, Türk jeopolitiği bu fırtınanın tam merkezinde yer alıyor. Kuzeyimizdeki Ukrayna-Rusya savaşı gibi sıcak çatışma bölgelerinden, güneyimizdeki Doğu Akdeniz’in enerji ve egemenlik mücadelesine kadar uzanan geniş bir coğrafya, Türk milletinin stratejik menfaatlerini doğrudan etkiliyor. Bu karmaşık ve dinamik tabloda, Türk Devleti'nin atacağı her adım, yalnızca bugünü değil, gelecekteki Türk dünyasının kaderini de tayin edecektir. Bu nedenle, olayları sadece izlemekle yetinmek yerine, rasyonel bir bakış açısıyla kendi milli çıkarlarımızı önceleyerek aktif bir oyuncu olmalıyız.
+
+2. Ukrayna-Rusya Savaşı, Karadeniz havzasında ve ötesinde stratejik bir domino etkisi yaratmıştır. Türk Boğazları’nın önemi, enerji yollarının güvenliği ve bölgesel istikrar, bu çatışmanın Türk milleti için ne denli hayati olduğunu göstermektedir. Bu savaş, Türk Devleti'nin tarafsız bir arabulucu rolü oynarken dahi, kendi güvenlik ve ekonomik çıkarlarını titizlikle koruması gerektiğini bir kez daha kanıtlamıştır. Büyük güçlerin kendi hesaplaşmalarını yaparken bölgemizi bir vekalet savaşı alanına çevirme potansiyeli karşısında, Türkiye'nin güçlü ve bağımsız duruşu elzemdir. Eski ABD Başkanı Trump'ın Asya ziyareti gibi gelişmeler, küresel odak noktalarının kaydığını ve bu durumun bölgemizde ortaya çıkarabileceği boşlukları ve fırsatları Türk'ün lehine çevirme potansiyelini gözler önüne sermektedir.
+
+3. Diğer yanda, Doğu Akdeniz, Türkiye'nin mavi vatanının ve doğal kaynaklarının güvencesi açısından hayati bir cephe olarak karşımızda durmaktadır. Yunanistan'ın ve Rum Kesimi'nin başını çektiği, bazı Avrupa devletlerinin de desteklediği çevreleme ve hak gaspı politikaları, Türk'ün egemenlik haklarına doğrudan bir tehdittir. Bu bölgedeki doğalgaz rezervleri ve deniz yetki alanları, gelecek nesillerin refahı için olmazsa olmazdır. Türkiye, uluslararası hukuktan doğan haklarını sonuna kadar savunmalı, deniz gücünü artırmalı ve bölgedeki varlığını tahkim etmelidir. Doğu Akdeniz, sadece ekonomik bir alan değil, aynı zamanda Türk jeopolitiğinin bir yansımasıdır. Bu fırtınalı denizde Türk'ün pusulası, daima milli beka, bağımsızlık ve Türk milletinin müreffeh geleceği olmalıdır. Başka hiçbir ideoloji ya da dış güçlerin dayatması, bu kutlu yoldan Türk Devleti'ni alıkoyamayacaktır.
