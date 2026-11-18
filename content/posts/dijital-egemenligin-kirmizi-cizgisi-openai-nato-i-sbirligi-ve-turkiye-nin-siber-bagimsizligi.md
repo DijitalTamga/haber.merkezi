@@ -1,0 +1,12 @@
+---
+title: "Dijital Egemenliğin Kırmızı Çizgisi: OpenAI-NATO İşbirliği ve Türkiye'nin Siber Bağımsızlığı"
+date: 2026-11-18T01:25:54+03:00
+draft: false
+
+---
+
+Yapay zeka şirketi OpenAI’ın, siber güvenlik modellerini NATO İletişim ve Bilgi Ajansı (NCIA) aracılığıyla ittifakın temel kurumlarının erişimine sunma kararı, dijital çağın karmaşık güvenlik tehditlerine karşı atılmış önemli bir adım olarak sunulmaktadır. Bu işbirliği, siber tehditlere karşı NATO’nun savunma kapasitesini artırma potansiyeli taşısa da, Türk milliyetçisi bir bakış açısıyla, bu tür adımların milli egemenlik ve stratejik bağımsızlık üzerindeki potansiyel etkileri dikkatle incelenmelidir. Küresel teknoloji devlerinin ve uluslararası oluşumların kritik güvenlik alanlarındaki rolleri, ulus devletlerin kendi güvenliklerini sağlama yükümlülüğü açısından derinlemesine değerlendirilmelidir.
+
+Yapay zeka temelli siber güvenlik çözümlerine erişim, kuşkusuz çağımızın vazgeçilmez bir gereğidir. Ancak bu erişimin hangi koşullarda, hangi aktörler aracılığıyla sağlandığı, birincil derecede önem arz etmektedir. NATO gibi bir yapının, dışarıdan bir teknoloji şirketinin modellerine bağımlı hale gelmesi, ittifak içindeki her üyenin, dolayısıyla Türkiye'nin siber güvenlik mimarisinde dışa bağımlılığı artırma riski taşımaktadır. Kritik altyapılarımızın ve ulusal veri güvenliğimizin, yabancı algoritmalar ve platformlar üzerinden yönetilmesi, ileride bilgi güvenliği, istihbarat ve hatta ulusal savunma kapasitemiz üzerinde kontrol kaybına yol açabilecek zafiyetler doğurabilir. Unutulmamalıdır ki, teknoloji transferi ve entegrasyonu, aynı zamanda bir bağımlılık ve veri akışı kanalı oluşturabilir.
+
+Bu durum, Türkiye Cumhuriyeti'nin, siber güvenlik ve yapay zeka alanında milli ve yerli çözümler geliştirme stratejisini daha da güçlendirmesi gerektiğini açıkça ortaya koymaktadır. Türk mühendislerinin ve bilim insanlarının, kendi özgün yapay zeka modellerini, kendi ulusal güvenlik önceliklerine göre şekillendirmesi, dijital egemenliğimizin temel taşıdır. Gelişmiş siber güvenlik modellerine dışarıdan erişim sağlamak yerine, bu modelleri sıfırdan inşa etme iradesi, Türkiye'nin siber bağımsızlığını güvence altına alacak yegane yoldur. Aksi takdirde, gelecekteki siber savaşlarda kendi kalkanımızı değil, başkalarının bize emanet ettiği kalkanı kullanmak zorunda kalabiliriz ki bu, Türk'ün bağımsızlık anlayışıyla asla bağdaşmaz. Kendi dijital tamgamızı vurmak, milli bir vazifedir.
