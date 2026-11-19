@@ -1,0 +1,12 @@
+---
+title: "Adalet Geç de Olsa Gelir mi? Arakan Soykırımı ve Uluslararası Hukukun Sınavı"
+date: 2026-11-19T17:48:48+03:00
+draft: false
+
+---
+
+Uluslararası Adalet Divanı'nın Myanmar hakkında aldığı karar, insanlık vicdanında derin yaralar açan bir trajediyi resmen tescilledi: Arakanlı Müslümanlara yönelik işlenen soykırım. Yıllardır süregelen sistematik şiddet, yerinden etme ve katliamlar, nihayet uluslararası hukukun en üst düzey mahkemesince soykırım olarak tanımlandı. Bu karar, mazlum bir topluluğun çığlığına geç de olsa kulak verilmesi ve zulmün uluslararası alanda adıyla anılması açısından sembolik bir önem taşımaktadır. Ancak bu gecikme, uluslararası sistemin krizler karşısındaki refleksini ve etkinliğini bir kez daha sorgulatırken, ulus devletlerin kendi vatandaşlarını koruma sorumluluğunun ne denli hayati olduğunu acı bir şekilde hatırlatmaktadır.
+
+Soykırım, insanlığa karşı işlenmiş en ağır suçlardan biridir ve bir topluluğun varoluş hakkını hedef alır. Arakan'da yaşananlar, etnik temizlik ve yok etme girişimlerinin modern dünyada dahi nasıl pervasızca işlenebildiğinin ibretlik bir örneğidir. Uluslararası Adalet Divanı'nın bu hükmü, hukuki zeminde önemli bir adım olsa da, zulme uğrayanların maruz kaldığı yıkımın telafisi için ne kadar yetersiz kaldığı ortadadır. Gelecekte benzer acıların yaşanmaması için sadece hukuki kararlar değil, güçlü ve caydırıcı uluslararası politikaların geliştirilmesi, egemen devletlerin ise kendi içlerinde ve bölgelerinde istikrarı sağlama ve vatandaşlarını her türlü tehdide karşı koruma kapasitelerini artırmaları elzemdir. Bu tür kararlar, sadece bir ülkeyi değil, tüm insanlığı ilgilendiren evrensel değerlerin korunmasında ortak sorumluluğu işaret eder.
+
+Herhangi bir coğrafyada, herhangi bir topluluğa yönelik işlenen bu denli büyük bir insanlık suçu, bizlere bir kez daha şunu öğütler: Adalet arayışı evrenseldir ancak kendi varlığını, kendi geleceğini güvence altına almanın tek yolu, güçlü bir devlet ve bilinçli bir millettir. Başka milletlerin veya uluslararası mekanizmaların iyi niyetine bırakılan bir kader, tarihin her döneminde acı sonuçlar doğurmuştur. Arakan kararı, yalnızca bir mahkeme hükmü değil, aynı zamanda ulusların kendi kaderlerini tayin etme ve kendi güvenliklerini sağlama konusundaki stratejik derinliği sürekli kılma çağrısıdır. Mazlumiyetin son bulması ve adaletin tecellisi için milletlerin kendilerine güvenmesi, kendi kudretini inşa etmesi ve evrensel değerleri kendi süzgecinden geçirerek savunması kaçınılmaz bir zorunluluktur.
