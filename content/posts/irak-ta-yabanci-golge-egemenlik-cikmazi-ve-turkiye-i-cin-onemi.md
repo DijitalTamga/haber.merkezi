@@ -1,0 +1,13 @@
+---
+title: "Irak'ta Yabancı Gölge: Egemenlik Çıkmazı ve Türkiye İçin Önemi"
+date: 2026-11-21T03:43:41+03:00
+draft: false
+cover:
+    image: "https://static01.nyt.com/images/2026/11/20/multimedia/20int-iraq-militia-01-kwgh/20int-iraq-militia-01-kwgh-mediumSquareAt3X.jpg"
+---
+
+1.  Irak topraklarında on yılı aşkın bir aranın ardından ilk kez Irak ordusu ve polisinin, İran destekli Kataib Hizbullah milislerinin denetimindeki bölgelere operasyon düzenlemesi, bölgedeki dengelerin ne denli kırılgan ve karmaşık olduğunu bir kez daha gözler önüne sermiştir. Bu adımlar, her ne kadar Irak devletinin egemenliğini tesis etme çabası olarak yorumlansa da, ülkenin iç güvenlik yapılarının dış etkenlerden ne denli etkilendiğini ve bir milis gücünün on yıl boyunca devlet otoritesinin üzerinde bir güç olarak varlığını sürdürebilmesinin vahametini ortaya koymaktadır. Irak'ın merkezi yönetiminin, kendi toprakları üzerindeki tam kontrolü sağlayamamasının bedeli, tüm bölge için derin istikrarsızlık ve dış müdahalelere açık kapı demektir.
+
+2.  Kataib Hizbullah gibi örgütlenmeler, yalnızca Irak'ın iç siyasetini değil, aynı zamanda bölgesel jeopolitiği de doğrudan etkileyen, İran'ın vekâlet savaşlarının önemli birer uzantısıdır. Bu tür milislerin varlığı, Irak'ın ulus devlet kimliğini aşındırırken, Fars yayılmacılığının bir aracı olarak bölgedeki Türkmen varlığı ve Türk milli menfaatleri için de ciddi riskler oluşturmaktadır. Irak'ın kuzeyindeki Türkmen bölgelerinde yaşanan güvenlik sorunları ve dış baskılar, bu tür yabancı güdümlü grupların etkinlik alanının genişlemesiyle doğrudan ilişkilidir. Irak'ın bir bataklığa dönüşmesi, Türkiye'nin güney sınırlarının güvenliğini doğrudan tehdit etmekte, bölgedeki terör örgütlerinin de bu kaostan beslenmesine zemin hazırlamaktadır.
+
+3.  Türkiye olarak, komşumuz Irak'ın toprak bütünlüğüne ve egemenliğine saygımızın yanında, kendi milli güvenliğimizden de asla taviz vermemeliyiz. Irak'ta yaşanan her gelişme, Türkiye'nin dikkatle takip etmesi gereken bir meseledir. Yabancı devletlerin kendi çıkarları doğrultusunda bölgeyi dizayn etme çabalarına karşı, Türkiye'nin güçlü ve proaktif bir dış politika izlemesi elzemdir. Irak devletinin kendi egemenliğini tam olarak tesis etme çabaları desteklenmeli, ancak bölgedeki Türkmen kardeşlerimizin hakları ve çıkarları başta olmak üzere Türk milli menfaatleri her daim en üst sırada tutulmalıdır. Bölgesel istikrar, ancak dış müdahalelerden arındırılmış, güçlü ulus devlet yapılarının varlığıyla mümkündür. Türkiye, kadim topraklarımız olan bu coğrafyada, kendi varlığını ve geleceğini güvence altına almak için atılacak her adımı titizlikle planlamak zorundadır.
