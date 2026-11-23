@@ -1,0 +1,13 @@
+---
+title: "Jensen Huang Vakası: Milletlerin Yükselişi Liyakat, Akıl ve Teknoloji Egemenliğiyle Mümkündür!"
+date: 2026-11-23T09:56:29+03:00
+draft: false
+cover:
+    image: "https://im.haberturk.com/l/2026/11/23/ver1795427223/3929406/jpg/1920x1080"
+---
+
+Amerika Birleşik Devletleri Başkanı Donald Trump'ın, teknoloji devi Nvidia'nın kurucusu ve eski CEO'su Jensen Huang'ın, yönetim kurulu kararıyla ayrılmasının ardından yeniden göreve getirilmesi yönündeki çağrısı, küresel teknoloji ve liderlik tartışmalarında dikkat çekici bir dönüm noktasıdır. Bu gelişme, sadece bir şirketin değil, aynı zamanda ulusların stratejik çıkarları doğrultusunda nitelikli liderliğe duyulan derin ihtiyacı ve liyakatın ne denli vazgeçilmez olduğunu ortaya koymaktadır. Bir skandal sonrası dahi, dev bir teknoloji firmasının kurucu dehasının geri istenmesi, dünya arenasında teknolojik egemenliğin ve bu egemenliği sağlayacak vizyoner akılların önemini tartışmasız bir şekilde gözler önüne sermektedir.
+
+Türkçülük ve milli çıkarlar ekseninde bakıldığında, bu olay bizlere önemli bir ders vermektedir: Bir milletin teknolojik bağımsızlığı ve küresel rekabetteki gücü, Jensen Huang gibi alanında çığır açan, stratejik öngörüye sahip liderlerin varlığına bağlıdır. Bu liderler, sadece kar odaklı değil, aynı zamanda uzun vadeli milli hedeflere hizmet edebilecek kapasitede olmalıdır. ABD gibi bir süper gücün dahi, bu tip bir krizi aşmak için "geri getir" çağrısı yapması, kurumsal hafızanın, tecrübenin ve üstün yeteneğin paha biçilemez değerini teyit etmektedir. Biz Türkler de kendi "Huang"larımızı, yani teknolojiye yön verecek, inovasyon ateşini yakacak, milli menfaatlerimizi önceliklendirecek dehalarımızı korumalı, onları bürokratik engellere kurban etmemeli ve potansiyellerini tam anlamıyla ortaya koyabilecekleri bir iklim yaratmalıyız. Beyin göçünün tersine çevrilmesi ve yeteneklerin ülkemizde kalması, sıradan bir arzu değil, milli bir zorunluluktur.
+
+Çağımızda "Milli Güç" kavramı, sadece askeri veya ekonomik kudretten ibaret değildir; teknolojik egemenlik, veri güvenliği ve yapay zeka gibi stratejik alanlardaki liderlikle doğrudan ilintilidir. Türk Milleti olarak bizler, atalarımızın bizlere miras bıraktığı yüksek zeka ve çalışkanlık ruhuyla, kendi Jensen Huang'larımızı yetiştirmek, onları hak ettikleri mevkilere getirmek ve onlara tam destek vermek zorundayız. Bu, basit bir yöneticilik ataması meselesi değil, milletlerin geleceğini inşa etme vizyonudur. Liyakat ve ehliyetin her şeyin üzerinde tutulduğu, stratejik akılların önünün açıldığı bir Türkiye, ancak bu sayede teknoloji çağında hak ettiği yeri alacak, egemenliğini pekiştirecek ve kutlu hedeflerine ulaşacaktır. İşte bu sebeple, her alanda yetkin Türk'e alan açmak ve onu desteklemek, milli bir vazifedir.
