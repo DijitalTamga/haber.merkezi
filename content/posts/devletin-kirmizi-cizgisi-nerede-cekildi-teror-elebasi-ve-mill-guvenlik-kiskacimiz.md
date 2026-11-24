@@ -1,0 +1,12 @@
+---
+title: "Devletin Kırmızı Çizgisi Nerede Çekildi? Terör Elebaşı ve Millî Güvenlik Kıskacımız"
+date: 2026-11-24T16:37:51+03:00
+draft: false
+
+---
+
+Milli Güvenlik Kurulu'nun (MGK) "teyit-tespit" kararı sürecindeki gecikme, teröristbaşı Abdullah Öcalan'ın 27 Kasım'da yapmayı planladığı iddia edilen "çağrının" ertelenmesine neden oldu. Bu haber, Türk milletinin terörle mücadelesindeki kararlılığını sorgulatmakta, devletin teröre karşı duruşu konusunda ciddi endişeler yaratmaktadır. Yıllardır Türk toprağında kan döken, binlerce şehidimizin katili olan bir terör örgütü liderinin herhangi bir konuda "çağrı" yapma beklentisi içinde olunması, hatta bu beklentinin devletin en üst güvenlik organlarından biriyle ilişkilendirilmesi kabul edilemez bir durumdur. Terörle mücadelenin asla taviz kabul etmeyecek bir millî dava olduğu hatırlandığında, bu türden bir gündem, devletin ciddiyetini ve millî onuru zedelemektedir.
+
+Söz konusu "teyit-tespit" kararının mahiyeti ne olursa olsun, devletin teröristbaşıyla dolaylı veya doğrudan herhangi bir iletişim, onay veya değerlendirme sürecine girmesi, millî vicdanımıza ve şehitlerimizin aziz hatırasına karşı büyük bir saygısızlıktır. Türk devleti, vatanın bölünmez bütünlüğünü ve milletin bekasını teminat altına alan, terörle mücadelede asla taviz vermeyen bir duruş sergilemelidir. Terör örgütü liderlerinin "mesajları" veya "çağrıları", devletin güvenlik stratejisinde bir değişken değil, yok edilmesi gereken tehdidin bir parçasıdır. Geçmişte yaşanan acı tecrübeler göstermiştir ki, terörle yürütülen her türlü "diyalog" veya "süreç", örgütün güçlenmesine, meşruiyet kazanmasına ve daha fazla kan dökmesine zemin hazırlamıştır. Bu dersler asla unutulmamalıdır.
+
+Türk milleti, teröre karşı mücadelesinde topyekûn bir duruş sergilerken, devletin de bu kararlılığı en üst düzeyde yansıtması bir zorunluluktur. MGK gibi kritik bir kurumun, teröristbaşıyla ilgili bu tür gündemlere girmesi dahi, iç barışımızı ve millî güvenliğimizi tehdit eden hassas bir sürecin varlığına işaret etmektedir. Unutulmamalıdır ki, devletin kırmızı çizgileri; şehit kanlarıyla çizilmiştir. Terörle mücadele, "ertelenen" bir çağrı ile değil, terörün kökünü kazımakla mümkündür. Devletimizden beklenen, teröre ve uzantılarına karşı hukuk ve kararlılıkla, tavizsiz bir mücadele sürdürmesi, vatanın ve milletin bekasını her şeyin üzerinde tutmasıdır. Millî irade, terörle pazarlığı asla kabul etmeyecektir.
