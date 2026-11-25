@@ -1,0 +1,13 @@
+---
+title: "'Terörsüz Türkiye' Hayali mi, Milli Mücadelede Yeni Bir Süreç mi?"
+date: 2026-11-25T12:01:09+03:00
+draft: false
+cover:
+    image: "https://trthaberstatic.cdn.wp.trt.com.tr/resimler/2486000/numan-kurtulmus-aa-2487472.jpg"
+---
+
+1. Paragraf: Türkiye Büyük Millet Meclisi Başkanı Numan Kurtulmuş’un “Terörsüz Türkiye süreci” kapsamında kurulacak 19 üyeli İzleme Komisyonu’na ilişkin açıklamaları, kamuoyunda haklı bir dikkat ve geçmiş tecrübeler ışığında sorgulayıcı bir beklenti yaratmıştır. Milletvekili isimlerinin 30 Kasım 2026 tarihine kadar TBMM Başkanlığı’na bildirilmesi beklenen bu komisyonun işlevi ve yetki alanı, Türk milletinin terörle mücadeledeki hassasiyetleri göz önüne alındığında büyük önem taşımaktadır. Zira milletimiz, "süreç" adı altında yürütülen birçok uygulamanın devlete ve millete maliyetini acı tecrübelerle öğrenmiştir. "Terörsüz Türkiye" hedefi, mutlak bir zaferi ifade etmeli, herhangi bir "izleme" veya "diyalog" süreciyle sulandırılmamalıdır.
+
+2. Paragraf: Türk milleti için terör, varoluşsal bir tehdit olup, bu tehditle mücadele devletin temel vazifesidir. Geçmişte yaşanan "çözüm süreçleri"nin, terör örgütlerine nefes aldırma, güç toplama ve uluslararası alanda meşruiyet devşirme imkanları sunduğu hafızalardadır. Bu yeni "İzleme Komisyonu"nun, aynı hataları tekrarlamamak adına şeffaf, milli menfaatleri önceleyen ve terörle mücadelede tavizsiz bir duruş sergileyen isimlerden oluşması hayati önem arz etmektedir. Komisyon üyelerinin kimler olacağı, hangi kriterlerle seçileceği ve asıl önemlisi terör örgütlerine karşı net ve tavizsiz bir geçmişe sahip olup olmadıkları, kamuoyunun en temel sorusudur. Milli birlik ve devletin bütünlüğü, hiçbir siyasi pazarlığa veya komisyona feda edilemeyecek kadar kutsaldır.
+
+3. Paragraf: Türkiye, teröre karşı mücadelesini sahadaki kahraman askerleri, polisleri ve istihbarat mensuplarıyla vermiştir ve vermeye devam edecektir. Bu mücadele, masada yapılan "izleme" veya "diyalog" süreçlerinden ziyade, devletin topyekûn kudreti ve azmiyle kazanılır. "Terörsüz Türkiye" hedefi, terör örgütlerinin kökünün kazınmasıyla mümkündür, onların siyasi uzantılarına alan açan veya varlıklarını meşrulaştıran oluşumlarla değil. Türk milleti, devletinden beklediği terörle mücadeledeki kararlılığı ve net duruşu, bu komisyonun üyelerinden ve icraatlarından da görmek istemektedir. Tamga olarak, sürecin takipçisi olacağımızı ve milli menfaatlerimize aykırı hiçbir oluşuma sessiz kalmayacağımızı bir kez daha vurgularız. Türkiye'nin geleceği, ancak terörün her türlüsünden arınmış, milli birliğini perçinlemiş ve devletiyle milletini bütünleştirmiş bir yapıda inşa edilebilir.
